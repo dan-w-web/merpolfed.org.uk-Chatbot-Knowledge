@@ -1,6 +1,6 @@
 # Merseyside Police Federation - Chatbot Knowledge Base
 
-_Last updated: 03 June 2026_
+_Last updated: 01 July 2026_
 
 _Source: https://merpolfed.org.uk_
 
@@ -27,117 +27,42 @@ This document is generated automatically from the live website and its policy do
 
 Source: https://merpolfed.org.uk/
 
-##### Latest Information
-
 ###### Police Mutual
 
-Financial services for serving or retired police officers, staff & families.
+Your trusted partner for financial wellbeing — savings, mortgages, insurance and more, tailored for police officers and staff.
 
-##### National Police Healthcare Scheme
+Supporting the officers that support you
 
-The National Police Healthcare Scheme is a not-for-profit Trust which seeks to offer the most affordable private healthcare, as well as additional benefits, to Officers, Staff, and their families.
+Your Group Insurance Details Can Be Found Here
 
-##### Chesterton Grant Mortgage Advice
+View Group Insurance- 1st Prize of £750 PC 6446 Michael Bailie
+- 2nd Prize of £500 Pens Paul Sudlow
 
-Please contact 01244 526 888 or merpolfed@chestertongrant.co.uk to arrange an appointment.
+Following another glittering night at Crowne Plaza Liverpool, with over 350 guests in attendance, we are pleased to announce the two charities we supported — the Bobby Colleran Trust and Aftermath Support — will each receive seventeen thousand pounds towards their work.
 
-##### GIS Information
+It is through the amazing support of our sponsors, supporters and the fabulous organisations that return year on year that the 2026 event was another sparkling success. We cannot thank everyone enough for their generous support on the night.
 
-If you are a member of the group insurance scheme you can download all the details to your phone wallet, just scan the QR code.
+We have photos of everyone — please email ColetteK@merseyside.polfed.org for the password to the link below. Keep a look out for the save-the-date for 2027; the nominated charity will be Willowbrook Hospice.
 
-You’ll have all the useful numbers at your fingertips.
+Fill in the form if you have any queries; we will respond during normal office hours, Monday to Friday 9am–4:30pm. Please note this is for general enquiries of a non-urgent nature. We aim to reply as soon as possible, or will direct your enquiry accordingly. Should you require Police assistance, call 101, or 999 in an emergency.
 
-##### New Service - Money Guided
+- 0151 259 2535
+- reception@merseyside.polfed.org
+- Malvern House
 
-You may have received a text already about this exciting new offer.
+13 Green Lane
 
-Click to see more information.
+Tuebrook
 
-###### June Prize Draw
+Liverpool
 
-**Win up to £1000! View page below.**
-
-##### March Charity Lottery Winners
-
-**1 st Prize of £750** – PC 5788 D Gavin
-
-**2**– PC 6131 M Sawkings
-
-ndPrize of £500## Annual Charity Dinner
-
-Following another glittering night at Crowne Plaza Liverpool, with over 350 guests in attendance we are pleased to announce the two charities we supported, the Bobby Colleran Trust and Aftermath Support will be receiving seventeen thousand pounds each toward their charities.
-
-It through the amazing support of our Sponsors, supporters and the fabulous organisations that return year on year that has made the 2026 event another sparkling success.
-
-We cannot that thank everyone enough for the generous support on the night. The wonderful Steward for volunteering and working so hard.
-
-To all the brilliant organisations, companies and individuals who donated prizes, thank you.
-
-We have some photos of everyone, please email ColetteK@merseyside.polfed.org for the password to the link below.
-
-Out thanks again and keep a look out for a save the date for 2027, its sure to be another fabulous party. The nominated charity for 2027 is Willowbrook Hospice, a cause that gives so much to anyone facing the loss of a loved one.
-
-##### Get In Touch
-
-Fill in this form if you have any queries, we will respond during normal office hours Mon-Fri 9am-4:30pm.
-
-Please note this is for general enquires, of a non-urgent nature.
-
-We aim to reply as soon as possible or will direct your enquiry accordingly.
-
-Should you require Police assistance call 101 or 999 in an emergency.
-
-### Our Full-Time Reps
-
-Source: https://merpolfed.org.uk/merseyside-police-federation/our-full-time-reps/
-
-#### Our Full-Time Reps
-
-Home » Merseyside Police Federation » Our Full-Time Reps
-
-##### Under Maintenance
-
-This page is currently being worked on.
-
-Skip to content
-#### Our Full-Time Reps
-
-##### Under Maintenance
-
-
-Home » Merseyside Police Federation » Our Full-Time Reps
-
-This page is currently being worked on.
-
-### Our Workplace Reps
-
-Source: https://merpolfed.org.uk/merseyside-police-federation/our-workplace-reps/
-
-#### Our Workplace Reps
-
-Home » Merseyside Police Federation » Our Workplace Reps
-
-##### Under Maintenance
-
-This page is currently being worked on.
-
-Skip to content
-#### Our Workplace Reps
-
-##### Under Maintenance
-
-
-Home » Merseyside Police Federation » Our Workplace Reps
-
-This page is currently being worked on.
+L13 7DT
 
 ### What We Do
 
 Source: https://merpolfed.org.uk/merseyside-police-federation/what-we-do/
 
 #### What We Do
-
-Home » Merseyside Police Federation » What We Do
 
 Merseyside Police Federation provides assistance to its members, the Federated ranks of Merseyside Police. We offer advice on Police Regulations covering matters like overtime, allowances and leave entitlements. Our day to day activities also involve advice, representation, and negotiation in areas such as Equality, grievances, Health and Safety issues, welfare and part-time working issues, professional development advice, and as ever – representation for Gross Misconduct, Misconduct and UPP investigations and hearings. Through members subscriptions we ensure legal advice and representation for on duty related incidents.
 
@@ -150,8 +75,6 @@ Merseyside Police Federation also administers its own charity, the MPF Charitabl
 Source: https://merpolfed.org.uk/merseyside-police-federation/our-facilities/
 
 #### Our Facilities
-
-Home » Merseyside Police Federation » Our Facilities
 
 ##### Facilities at Green Lane
 
@@ -169,139 +92,120 @@ Please visit the North West Police Benevolent Fund website for further informati
 
 Source: https://merpolfed.org.uk/merseyside-police-federation/whos-who/
 
-#### Who’s Who
+Local Policing |
 
-Home » Merseyside Police Federation » Who’s Who
+Andy Halfpenny (1457) |
+HQ, Prevention Safer Schools |
+07399 114006 |
+HalfpennyA@merseyside.polfed.org |
 
-Name (Badge) | Role / Location | Phone | |
----|---|---|---|
+Alan McKeon (5008) |
+Prevention HQ |
+07956 237154 |
+Alan.McKeon@polfed.org |
 
-Local Policing | |||
+R and R |
 
-Andy Halfpenny (1457) | HQ, Prevention Safer Schools | 07399 114006 | HalfpennyA@merseyside.polfed.org |
+Sam Wong (7388) |
+HQ/Prevention |
+07751 090080 |
+Sam.wong@polfed.org |
 
-Alan McKeon (5008) | Prevention HQ | 07956 237154 | Alan.McKeon@polfed.org |
+Josh Leach (4378) |
+ST Helens/R&P |
+07375 257514 |
+josh.leach@polfed.org |
 
-R and R | |||
+Rebecca Patterson (2530) |
+Edge Lane/R&R |
+07399 113813 |
+Rebecca.hutchinson@polfed.org |
 
-Sam Wong (7388) | HQ/Prevention | 07751 090080 | Sam.wong@polfed.org |
+Rob Flower (7118) |
+Wallasey/R&R |
+07967 776860 |
+Robert.Flower@polfed.org |
 
-Josh Leach (4378) | ST Helens/R&P | 07375 257514 | josh.leach@polfed.org |
+CUSTODY |
 
-Rebecca Patterson (2530) | Edge Lane/R&R | 07399 113813 | Rebecca.hutchinson@polfed.org |
+Geraint Price (Gez) (2090) |
+SAS/Custody/Team2 |
+07399 113850 |
+geraint.price@polfed.org |
 
-Rob Flower (7118) | Wallasey/R&R | 07967 776860 | Robert.Flower@polfed.org |
+Investigations |
 
-CUSTODY | |||
+Paul Doran (2124) |
+Belle Vale/Investigations |
+07399 113971 |
+Paul.doran@polfed.org |
 
-Geraint Price (Gez) (2090) | SAS/Custody/Team2 | 07399 113850 | geraint.price@polfed.org |
+Stephanie Rimmer (3255) |
+MCU/Covert Investigation |
+07399 114004 |
+Stephanie.Rimmer@polfed.org |
 
-Investigations | |||
+Gary Smith (1666) |
+Investigations |
+07399 113889 |
+G.Smith@polfed.org |
 
-Paul Doran (2124) | Belle Vale/Investigations | 07399 113971 | Paul.doran@polfed.org |
+Richard McKenzie (7948) |
+SAS/CID/Investigations |
+07970 888713 |
+Richard.Mckenzie@polfed.org |
 
-Stephanie Rimmer (3255) | MCU/Covert Investigation | 07399 114004 | Stephanie.Rimmer@polfed.org |
+Mathew Muspratt (3774) |
+SAS/Investigations |
+07484 588905 |
+Matthew.Muspratt@polfed.org |
 
-Gary Smith (1666) | Investigations | 07399 113889 | G.Smith@polfed.org |
+Matrix |
 
-Richard McKenzie (7948) | SAS/CID/Investigations | 07970 888713 | Richard.Mckenzie@polfed.org |
+Stephen Gavin (7696) |
+OCC/Matrix Firearms |
+07399 113952 |
+Stephen.Gavin@polfed.org |
 
-Mathew Muspratt (3774) | SAS/Investigations | 07484 588905 | Matthew.Muspratt@polfed.org |
+Emma Haffenden (3614) |
+OCC/RPU/Matrix |
+07956 237151 |
+Emma.haffenden@polfed.org |
 
-Matrix | |||
+Tony Johnson (5009) |
+OCC/Matrix Dogs |
+07399 113904 |
+Tony.Johnson@polfed.org |
 
-Stephen Gavin (7696) | OCC/Matrix Firearms | 07399 113952 | Stephen.Gavin@polfed.org |
+HQ Legal Services |
 
-Emma Haffenden (3614) | OCC/RPU/Matrix | 07956 237151 | Emma.haffenden@polfed.org |
+Charlie Farley (2254) |
+HQ Legal Services |
+07375 257493 |
+Charlie.Farley@polfed.org |
 
-Tony Johnson (5009) | OCC/Matrix Dogs | 07399 113904 | Tony.Johnson@polfed.org |
+Training |
 
-HQ Legal Services | |||
+Louisa Parker (2960) |
+Mather Ave/Trainer |
+07399 113925 |
+Louisa.Parker@polfed.org |
 
-Charlie Farley (2254) | HQ Legal Services | 07375 257493 | Charlie.Farley@polfed.org |
+Andy Barry (1129) |
+Mather Ave/Trainer |
+07702 934648 |
+BarryA@merseyside.polfed.org |
 
-Training | |||
+### Our Workplace Reps
 
-Louisa Parker (2960) | Mather Ave/Trainer | 07399 113925 | Louisa.Parker@polfed.org |
-
-Andy Barry (1129) | Mather Ave/Trainer | 07702 934648 | BarryA@merseyside.polfed.org |
-
-### Contact Us
-
-Source: https://merpolfed.org.uk/merseyside-police-federation/contact-us/
-
-#### Contact Us
-
-Home » Merseyside Police Federation » Contact Us
-
-##### Quick Contact
-
-Fill in this form if you have any queries, we will respond during normal office hours Mon-Fri 9am-4:30pm.
-
-Please note this is for general enquires, of a non-urgent nature.
-
-We aim to reply as soon as possible or will direct your enquiry accordingly.
-
-Should you require Police assistance call 101 or 999 in an emergency.
-
-## Group Insurance
-
-### Kinsella Clarke
-
-Source: https://merpolfed.org.uk/group-insurance/kinsella-clarke/
-
-#### Kinsella Clarke
-
-Home » Group Insurance » Kinsella Clarke
-
-Your Group Insurance Scheme also includes the below additional benefit that are provided by the Trust.
-
-Philip Williams & Co do not endorse or administer this service.
-
-###### Offer a free and 100% confidential specialist advice service to all Trust Members who are subscribed to the Group Insurance Scheme (*serving and retired officers*).
-
-**We can help you if you need:**
-
-- Debt Advice
-- Taxation Services & Government Body Issues (
-*fees may apply*) - Personal Budgeting
-- Wills and Inheritance Tax Planning (
-*fees may apply*)
-
-And all other money issues.
-
-All services are **FREE** to Trust Members who subscribe to Group Insurance.
-
-To arrange a confidential appointment contact Jackie on:
-
-Tel: 0151 933 3400
-
-Email: admin@kinsellaclarke.co.uk
-
-Website: www.kinsellaclarke.co.uk
-
-61 Stanley Road,
-
-Bootle,
-
-Merseyside
-
-L20 7BZ
-
-Kinsella Clarke is the Trading Name of Kinsella Clarke Limited
-
-### Malvern Lodge Holiday Lets
-
-Source: https://merpolfed.org.uk/group-insurance/malvern-lodge-holiday-lets/
+Source: https://merpolfed.org.uk/merseyside-police-federation/our-workplace-reps/
 
 Skip to content
 90 Days Notice Calculator:
-Tue, 1 September 2026
+Tue, 29 September 2026
 The Hub (For Reps)
 National Website
-Search ...
-Results
-View Your Reps
+Search
 Quick Ref Guide
 Home
 What We Do
@@ -340,6 +244,7 @@ Motor Source Group
 Police Insure
 Police Mutual
 Vertu Motors
+W Web Design & Hosting
 Service Providers
 Carpenters Group
 Chesterton Grant
@@ -357,6 +262,24 @@ Slater and Gordon
 National Police Healthcare Scheme
 Wilson Grange Mortgages
 Holiday Lets
+Home
+Merseyside Police Federation
+Our Workplace Reps
+Our Workplace Reps
+Under Maintenance
+This page is currently being worked on.
+
+### Our Full-Time Reps
+
+Source: https://merpolfed.org.uk/merseyside-police-federation/our-full-time-reps/
+
+Skip to content
+90 Days Notice Calculator:
+Tue, 29 September 2026
+The Hub (For Reps)
+National Website
+Search
+Quick Ref Guide
 Home
 What We Do
 Contact Us
@@ -394,6 +317,7 @@ Motor Source Group
 Police Insure
 Police Mutual
 Vertu Motors
+W Web Design & Hosting
 Service Providers
 Carpenters Group
 Chesterton Grant
@@ -411,12 +335,78 @@ Slater and Gordon
 National Police Healthcare Scheme
 Wilson Grange Mortgages
 Holiday Lets
-Malvern Lodge Holiday Lets
 Home
-»
-Group Insurance
-»
-Malvern Lodge Holiday Lets
+Merseyside Police Federation
+Our Full-Time Reps
+Our Full-Time Reps
+Under Maintenance
+This page is currently being worked on.
+
+### Contact Us
+
+Source: https://merpolfed.org.uk/merseyside-police-federation/contact-us/
+
+#### Contact Us
+
+##### Quick Contact
+
+Fill in the form below and we will get back to you as soon as possible. Office hours are Monday to Friday, 9am–5pm. For urgent matters out of hours, please call the number below.
+
+- 0151 259 2535
+- reception@merseyside.polfed.org
+- Malvern House
+
+13 Green Lane
+
+Tuebrook
+
+Liverpool
+
+L13 7DT
+
+## Group Insurance
+
+### Kinsella Clarke
+
+Source: https://merpolfed.org.uk/group-insurance/kinsella-clarke/
+
+#### Kinsella Clarke
+
+Your Group Insurance Scheme also includes the below additional benefit that are provided by the Trust.
+
+Philip Williams & Co do not endorse or administer this service.
+
+###### Offer a free and 100% confidential specialist advice service to all Trust Members who are subscribed to the Group Insurance Scheme (*serving and retired officers*).
+
+**We can help you if you need:**
+
+- Debt Advice
+- Taxation Services & Government Body Issues (
+*fees may apply*) - Personal Budgeting
+- Wills and Inheritance Tax Planning (
+*fees may apply*)
+
+And all other money issues.
+
+All services are **FREE** to Trust Members who subscribe to Group Insurance.
+
+To arrange a confidential appointment contact Jackie on:
+
+Tel: 0151 933 3400
+
+Email: admin@kinsellaclarke.co.uk
+
+Website: www.kinsellaclarke.co.uk
+
+61 Stanley Road,
+
+Bootle,
+
+Merseyside
+
+L20 7BZ
+
+Kinsella Clarke is the Trading Name of Kinsella Clarke Limited
 
 ### Group Insurance Policy Documents
 
@@ -424,7 +414,6 @@ Source: https://merpolfed.org.uk/group-insurance/group-insurance-policy-document
 
 #### Group Insurance Policy Documents
 
-Home » Group Insurance » Group Insurance Policy Documents
 
 - Critical Illness and Sickness Policy – 1st May 2026
 - Home Emergency Policy – 1st May 2026
@@ -437,61 +426,18 @@ Home » Group Insurance » Group Insurance Policy Documents
 - Personal Accident Policy – 1st May 2026
 - Vehicle Breakdown Policy – 1st May 2026
 
-### Group Insurance
-
-Source: https://merpolfed.org.uk/group-insurance/
-
-#### Group Insurance
-
-Home » Group Insurance
-
-Malvern House Group Insurance is a Group of Insurances that have been specially picked by your local Federation Branch, to assist and protect you and your family in times of need. This scheme is open to Police Officers, Police Staff and can be continued into retirement. These Insurances have all been grouped together under one package, which allows for the premiums to be kept low, and if these insurances were purchased individually, they will be much more expensive.
-
-You can have all the below with just one single premium deducted from salary or pension and no worry over having to renew your insurance each year, as this happens automatically.
-
-If you are a member of the group insurance scheme you can download all the details to your phone wallet, just scan the QR code.
-
-You’ll have all the useful numbers at your fingertips.
-
-##### Price
-
-**£35.25 PER MONTH FOR SERVING OFFICERS & STAFF. (SEE THE SCHEME BENEFIT BOOKLET FOR OTHER FEES)**
-
-Some of the above cover extends to your partner and family and further details for this and all the above listed cover can be found in the Scheme Benefits Booklet.
-
-##### The Benefits
-
-- Life Insurance: £140,000
-- Critical Illness: £5,000
-- Terminal Prognosis Advance on Life Benefit
-- Accidental Loss of use following accident for: Sight in one of both eyes; One or more limbs; Hearing in one of both ears; speech
-- Child Critical Illness
-- Child Death Grant
-- Hospital Benefit for emergency admission: £50.00 a night for up to 7 nights
-- Emergency Dental Treatment following accident.
-- Unrecoverable Court compensation
-- Sick pay benefit when cut to half pay
-- Support 24
-- GP 24
-- Family worldwide Travel Insurance
-- Legal Expenses Cover
-- Home Emergency Assistance
-- Motor Breakdown Cover (UK)
-- Financial Service with Kinsella Clarke
-
 ### Application & Claims Forms
 
 Source: https://merpolfed.org.uk/group-insurance/application-claims-forms/
 
 #### Application & Claims Forms
 
-Home » Group Insurance » Application & Claims Forms
-
 Malvern House Group Insurance Policies can be found here
 
 To keep you up to date with current issues within the Federation and the wider police family, we will provide news items, circulars and information on current issues on a regular basis. Our updates section is designed to give you quick responses when a news item comes to our attention. Please check the publications section regularly.
 
 **For cancellation of your Group Insurance Membership, this MUST be submitted with signature.**
+
 
 ##### Prior To Application
 
@@ -507,6 +453,10 @@ When applying for Group Insurance or when downloading ANY Group Insurance claim 
 
 ###### Police Staff Forms
 
+- Application to join Police Staff
+- Standard Health Declaration
+- Full Health Declaration (Only to be completed if/partner cannot comply with the standard declaration)
+
 ##### Claims Forms
 
 - Accidental Burns Benefit Claim Form – from 1st May 2026
@@ -520,10 +470,20 @@ When applying for Group Insurance or when downloading ANY Group Insurance claim 
 - Police Treatment Centre Benefit Claim Form – from 1st May 2026
 - Unsociable Hours Benefit Claim Form – from 1st May 2026
 
+##### Beneficiary Nomination Form
+
+Please download the attached form:
+
+
+Download Beneficiary Nomination Form
+
+
 ##### Specials Core Group Insurance Scheme
 
 This scheme is open to Special officers, who have opted to join the Federation. The cover includes:
 
+-
+-
 - Worldwide Travel Cover
 - GP 24 Service
 - Health Hero Assistance
@@ -533,6 +493,7 @@ This scheme is open to Special officers, who have opted to join the Federation. 
 - Some of this cover will extend to cover your co-habiting partner and family.
 
 
+-
 
 Please refer to the application form for further details on the benefits and the cost.
 
@@ -551,8 +512,6 @@ To apply, simply complete the form and return to the e mail address on the form.
 Source: https://merpolfed.org.uk/group-insurance/money-guided/
 
 #### Money Guided
-
-Home » Group Insurance » Money Guided
 
 ##### June Prize Draw
 
@@ -585,6 +544,155 @@ Good luck!
 Malvern House Group Insurance Trustees are excited to include the Money Guided app in your scheme for 2026.
 
 Please scan the QR code to start your journey to support with your finances and great saving on your everyday spend.
+
+### Malvern Lodge Holiday Lets
+
+Source: https://merpolfed.org.uk/group-insurance/malvern-lodge-holiday-lets/
+
+Skip to content
+90 Days Notice Calculator:
+Tue, 29 September 2026
+The Hub (For Reps)
+National Website
+Search
+Quick Ref Guide
+Home
+What We Do
+Contact Us
+Our Facilities
+Who’s Who
+Group Insurance
+Policy Documents
+Scheme Benefits Booklet
+Travel Policy
+Application & Claims Forms
+Kinsella Clarke
+Malvern Lodge Holiday Lets
+Money Guided
+Charitable Trust
+How We Raise Funds
+How We Help
+Who We’ve Helped
+Monthly Lottery Draw Application
+Charitable Trust Application Form
+Christmas Hampers
+Annual Charity Dinner
+Donations and Legacies
+Get Advice
+Criminal Injuries Compensation Authority
+Equality, Diversity & Inclusion
+FAQs
+Health & Safety
+Misconduct
+PFEW Maternity Guide
+Pensions & Injury Awards
+Sickness
+Offers & Discounts
+Motorfinity
+Motor Source Group
+Police Insure
+Police Mutual
+Vertu Motors
+W Web Design & Hosting
+Service Providers
+Carpenters Group
+Chesterton Grant
+DGM Solicitors
+Gorvins Solicitors
+Harvey Howell Solicitors
+Lund Bennett
+Police Treatment Centres
+Ralli Solicitors
+Reflect Financial
+Serve & Protect
+The Ben Fund
+The Police Children’s Charity
+Slater and Gordon
+National Police Healthcare Scheme
+Wilson Grange Mortgages
+Holiday Lets
+Home
+Group Insurance
+Malvern Lodge Holiday Lets
+Malvern Lodge Holiday Lets
+
+### Group Insurance
+
+Source: https://merpolfed.org.uk/group-insurance/
+
+#### Group Insurance
+
+###### Important: Temporary Issue with Home Emergency Claims Telephone Number
+
+We’ve been made aware of a problem with our Home Emergency Claims telephone number, which has unfortunately stopped working. The issue is currently under investigation, and we’re unsure when the original number will be restored.
+
+If you need to make a claim, please use our new telephone number:
+
+This number is already live and ready to take your calls.
+
+✅ Alternatively, you can continue to submit your claim via our online Claims Portal, which remains fully operational and unaffected.
+
+We apologise for any inconvenience, especially if you’re trying to make a claim over the weekend, and we appreciate your patience while we resolve this issue.
+
+Malvern House Group Insurance is a Group of Insurances that have been specially picked by your local Federation Branch, to assist and protect you and your family in times of need. This scheme is open to Police Officers, Police Staff and can be continued into retirement. These Insurances have all been grouped together under one package, which allows for the premiums to be kept low, and if these insurances were purchased individually, they will be much more expensive.
+
+You can have all the below with just one single premium deducted from salary or pension and no worry over having to renew your insurance each year, as this happens automatically.
+
+If you are a member of the group insurance scheme you can download all the details to your phone wallet, just scan the QR code.
+
+You’ll have all the useful numbers at your fingertips.
+
+
+
+##### Price
+
+**£35.25 PER MONTH FOR SERVING OFFICERS & STAFF. (SEE THE SCHEME BENEFIT BOOKLET FOR OTHER FEES)**
+
+Some of the above cover extends to your partner and family and further details for this and all the above listed cover can be found in the Scheme Benefits Booklet.
+
+##### The Benefits
+
+- Life Insurance: £140,000
+- Critical Illness: £5,000
+- Terminal Prognosis Advance on Life Benefit
+- Accidental Loss of use following accident for: Sight in one of both eyes; One or more limbs; Hearing in one of both ears; speech
+- Child Critical Illness
+- Child Death Grant
+- Hospital Benefit for emergency admission: £50.00 a night for up to 7 nights
+- Emergency Dental Treatment following accident.
+- Unrecoverable Court compensation
+- Sick pay benefit when cut to half pay
+- Support 24
+- GP 24
+- Family worldwide Travel Insurance
+- Legal Expenses Cover
+- Home Emergency Assistance
+- Motor Breakdown Cover (UK)
+- Financial Service with Kinsella Clarke
+
+###### Application & Claims Forms
+
+Malvern House Group Insurance Policies can be found hereTo keep you up to date with current issues within the Federation and the wider…
+
+Find out more →### Group Insurance Policy Documents
+
+Critical Illness and Sickness Policy – 1st May 2026 Home Emergency Policy – 1st May 2026 Legal Expenses Policy – 1st May…
+
+Find out more →### Kinsella Clarke
+
+Your Group Insurance Scheme also includes the below additional benefit that are provided by the Trust. Philip Williams & Co do not…
+
+Find out more →### Malvern Lodge Holiday Lets
+
+Find out more →### Money Guided
+
+June Prize Draw The Money Guided quiz is back from 1st June, and yes, there's £3,000 of actual prize money up for…
+
+Find out more →### Policy Documents
+
+Vehicle Breakdown Policy 01/05/2024Critical Illness & Sickness Policy 01/05/24Home Emergency Policy 01/05/2024Legal Expenses Policy 01/05/2024Personal Accident Policy 01/05/2024Life Assurance Policy - Serving…
+
+Find out more →
 
 ### Scheme Benefits Booklet (PDF)
 
@@ -2984,16 +3092,14 @@ Please read this Schedule in conjunction with the Group Life Policy - Police. An
 Policy are highlighted within this document.
 
 The Insured
-
 The Trustees of Malvern House Group Insurance Trust
 
 The Intermediary
 
 Philip Williams and Co (a trading name of Howden UK Brokers Ltd)
+
 Effective Date of the Insurance
-
 1st May 2026
-
 This replaces the policy schedule dated: 6th February 2026
 
 Termination Date of the Insurance
@@ -3065,11 +3171,11 @@ N/A
 
 Exceptions within the cover
 
-*™ Extended Sick Pay- 20% of Scale Pay.
+*“ Extended Sick Pay- 20% of Scale Pay.
 
 Signed in Southampton on the
 
-Dat ied
+Dual Sie
 ——
 Richard Dickinson
 Chief Executive
@@ -9748,37 +9854,13 @@ also notify us.
 
 ## Charitable Trust
 
-### Donations and Legacies
-
-Source: https://merpolfed.org.uk/charitable-trust/donations-and-legacies/
-
-#### Donations and Legacies
-
-Home » Charitable Trust » Donations and Legacies
-
-##### Under Construction
-
-This page us under construction
-
-Skip to content
-#### Donations and Legacies
-
-##### Under Construction
-
-
-Home » Charitable Trust » Donations and Legacies
-
-This page us under construction
-
 ### How We Help
 
 Source: https://merpolfed.org.uk/charitable-trust/how-we-help/
 
 #### How We Help
 
-Home » Charitable Trust » How We Help
-
-##### A Fund We're Extremely Proud Of!
+##### A Fund We’re Extremely Proud Of!
 
 Our Charity provides acts of kindness to those needing it most in the form of retail shopping vouchers, flowers, gifts, food hampers and monetary donations. Our Christmas Fund which runs during the festive period has become extremely popular amongst our membership where we donate over 125 food hampers and over £10,000 retail gift cards to beneficiaries, usually vulnerable victims of crime, for which we receive so many thankyou cards and letters from grateful recipients.
 
@@ -9794,8 +9876,6 @@ Source: https://merpolfed.org.uk/charitable-trust/who-weve-helped/
 
 #### Who We’ve Helped
 
-Home » Charitable Trust » Who We’ve Helped
-
 ##### More Every Year
 
 Since 2007 we have donated over £298k to local charities and good causes. At the end of each financial year, we ensure that every penny of the funds we raise is donated to one or more cause. We have donated over £608K since the charity was formed in 206.Over the years we have also been privileged to be able to donate to:-
@@ -9810,9 +9890,7 @@ Source: https://merpolfed.org.uk/charitable-trust/
 
 #### Charitable Trust
 
-Home » Charitable Trust
-
-##### The Charity - trying to make a difference in the neighbourhoods we serve
+##### The Charity – trying to make a difference in the neighbourhoods we serve
 
 The MPF Charitable Trust. was established as a registered charity (No. 1119125 England & Wales) in 2006 with the main aim of the Charity to provide support/assistance to victims of crime/violence or those suffering loss, hardship, or distress within Merseyside.
 
@@ -9825,7 +9903,9 @@ The Trust’s primary sources of income are:
 
 Our Charity is administered entirely by the Merseyside Police Federation at Green Lane. It has limited overheads and trustees receive no expenses. Funds raised are donated back into the Merseyside community.
 
+
 ##### Charity Aims and Objectives
+
 
 The Trustees of the Charitable Trust must apply the income of the Charity in furthering the following objectives:
 
@@ -9837,13 +9917,43 @@ The Trustees of the Charitable Trust must apply the income of the Charity in fur
 - The relief of financial hardship and sickness and the preservation and protection of health of elderly people and children.
 - To or for other charitable purposes as the trustees may from time to time determine
 
+##### Gallery
+
+###### Annual Charity Dinner
+
+2027 is our 49th Dinner and we are moving to The Titanic Hotel Liverpool! Following another glittering and fabulously successful night, donating…
+
+Find out more →### Charitable Trust Application Form
+
+Find out more →### Christmas Hampers
+
+Ho! Ho! Ho! Spread Some Christmas Joy! It would be great to think we aren’t needed at such a happy time but…
+
+Find out more →### Donations and Legacies
+
+Under Construction This page us under construction
+
+Find out more →### How We Help
+
+A Fund We're Extremely Proud Of! Our Charity provides acts of kindness to those needing it most in the form of retail…
+
+Find out more →### How We Raise Funds
+
+With Your Help Our funds come mainly from the Charity trust monthly Lottery and from the high profile annual charity dinner which…
+
+Find out more →### Monthly Lottery Draw Application
+
+Find out more →### Who We’ve Helped
+
+More Every Year Since 2007 we have donated over £298k to local charities and good causes. At the end of each financial…
+
+Find out more →
+
 ### How We Raise Funds
 
 Source: https://merpolfed.org.uk/charitable-trust/how-we-raise-funds/
 
 #### How We Raise Funds
-
-Home » Charitable Trust » How We Raise Funds
 
 ##### With Your Help
 
@@ -9857,55 +9967,14 @@ In past years, working with PIPS Programmes, the Trust has been lucky to have be
 
 Our Charitable Trust is dedicated to providing for the community of Merseyside.
 
-### Monthly Lottery Draw Application
-
-Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-lottery/
-
-#### Monthly Lottery Draw Application
-
-Home » Charitable Trust » Monthly Lottery Draw Application
-
-##### It could be you who wins £750 or £500 each month!
-
-Surely a no brainer, for the cost of a large coffee at one of those popular coffee emporiums you could be helping the Charity with its cause and in with a chance of **winning £750 or £500 every month.**
-
-Since 2007 we have donated over £190K in Christmas grants, £110K in monthly grants (applications are open all year round not just at Christmas) and £322K to other local charities and good causes.
-
-None of this would be possible without the generous support from you, officers, and staff who enter the Monthly Charity Lottery.
-
-The Lottery is just £1 per entry, **but for £5 per month you can have 5 entries, more chances to win**. Drawn electronically each month, on or close to the 28th of the month; winners are notified by telephone and announced on our website, anonymously if preferred.
-
-Its quick and simple to join, complete the Lottery form below and we will sort everything with payroll or your pension provider.
-
-**What’s more once you’ve joined up you can submit an application to help a victim of crime in the local community or support an organisation across the Merseyside area.**
-
-### Charitable Trust Application Form
-
-Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-awards/
-
-#### Charitable Trust Application Form
-
-Home » Charitable Trust » Charitable Trust Application Form
-
-##### You nominate who we help!
-
-Charity Applications are welcomed all year round. We have already helped so many in the community who are victims of horrendous crimes. We support local organisations and charities across Merseyside too. Generally awards are vouchers or flowers and sometimes both, essentially a token gesture to support the community and show we care. Trustees will consider monetary donations to charities and organisation across the police area.
-
-Due to the high demand for you must be a subscribing member of the Monthly Lottery Draw, we think this is only fair, as you then get to suggest where the funds go. Click here to join Monthly Lottery Draw Application – Merseyside Police Federation If you are already a subscriber to the lottery just complete the application form below, its quick and easy to do. The trustees of the charity meet regularly to consider applications, you will be expected to collect and deliver an award should one be made.
-
-The criteria for an award: Individuals residing in the Merseyside area who are victims of crime and/or violence or who have suffered some kind of loss, hardship or distress. They also help young people advance in life through the provision of support and activities which develop their life skills to enable them to participate in society.
-
-If you are looking to apply for a Christmas hamper click here Christmas Hampers – Merseyside Police Federation. Hamper applications are open from early November.
-
 ### Christmas Hampers
 
 Source: https://merpolfed.org.uk/charitable-trust/christmas-charity-awards/
 
 #### Christmas Hampers
 
-Home » Charitable Trust » Christmas Hampers
-
 ##### Ho! Ho! Ho! Spread Some Christmas Joy!
+
 
 It would be great to think we aren’t needed at such a happy time but this is often when hardship, fear and violence is at its worst. Every year, at the beginning of November as Christmas approaches, we open our ‘Christmas Fund’ and encourage our Subscribing members and staff to submit applications to us for an award of either a food hamper, or retail vouchers, or both.
 
@@ -9937,9 +10006,8 @@ Source: https://merpolfed.org.uk/charitable-trust/annual-charity-dinner/
 
 #### Annual Charity Dinner
 
-Home » Charitable Trust » Annual Charity Dinner
-
 ##### 2027 is our 49th Dinner and we are moving to The Titanic Hotel Liverpool!
+
 
 Following another glittering and fabulously successful night, donating an amazing £34k to The Bobbly Colleran Trust and Aftermath Support at Crowne Plaza Liverpool in January 2026.
 
@@ -9955,7 +10023,10 @@ Tickets are £65 per person and tables general hold 10, there are a small number
 
 There are a number of sponsorship opportunities, see the image below. Please contact ColletteK@merseyside.polfed.org if you’d like to become a sponsor.
 
+
+
 ##### With thanks to Everyone involved in the 2026 event.
+
 
 It’s through the amazing support of the Sponsors, supporters and the fabulous organisations that return year on year that made the 2026 event another great success.
 
@@ -9965,15 +10036,165 @@ To all the brilliant organisations, companies and individuals who donated prizes
 
 We have some photos for the 2026 event, please email ColletteK@merseyside.polfed.org for the password to the link below.
 
+### Donations and Legacies
+
+Source: https://merpolfed.org.uk/charitable-trust/donations-and-legacies/
+
+Skip to content
+90 Days Notice Calculator:
+Tue, 29 September 2026
+The Hub (For Reps)
+National Website
+Search
+Quick Ref Guide
+Home
+What We Do
+Contact Us
+Our Facilities
+Who’s Who
+Group Insurance
+Policy Documents
+Scheme Benefits Booklet
+Travel Policy
+Application & Claims Forms
+Kinsella Clarke
+Malvern Lodge Holiday Lets
+Money Guided
+Charitable Trust
+How We Raise Funds
+How We Help
+Who We’ve Helped
+Monthly Lottery Draw Application
+Charitable Trust Application Form
+Christmas Hampers
+Annual Charity Dinner
+Donations and Legacies
+Get Advice
+Criminal Injuries Compensation Authority
+Equality, Diversity & Inclusion
+FAQs
+Health & Safety
+Misconduct
+PFEW Maternity Guide
+Pensions & Injury Awards
+Sickness
+Offers & Discounts
+Motorfinity
+Motor Source Group
+Police Insure
+Police Mutual
+Vertu Motors
+W Web Design & Hosting
+Service Providers
+Carpenters Group
+Chesterton Grant
+DGM Solicitors
+Gorvins Solicitors
+Harvey Howell Solicitors
+Lund Bennett
+Police Treatment Centres
+Ralli Solicitors
+Reflect Financial
+Serve & Protect
+The Ben Fund
+The Police Children’s Charity
+Slater and Gordon
+National Police Healthcare Scheme
+Wilson Grange Mortgages
+Holiday Lets
+Home
+Charitable Trust
+Donations and Legacies
+Donations and Legacies
+Under Construction
+This page us under construction
+
+### Charitable Trust Application Form
+
+Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-awards/
+
+Skip to content
+90 Days Notice Calculator:
+Tue, 29 September 2026
+The Hub (For Reps)
+National Website
+Search
+Quick Ref Guide
+Home
+What We Do
+Contact Us
+Our Facilities
+Who’s Who
+Group Insurance
+Policy Documents
+Scheme Benefits Booklet
+Travel Policy
+Application & Claims Forms
+Kinsella Clarke
+Malvern Lodge Holiday Lets
+Money Guided
+Charitable Trust
+How We Raise Funds
+How We Help
+Who We’ve Helped
+Monthly Lottery Draw Application
+Charitable Trust Application Form
+Christmas Hampers
+Annual Charity Dinner
+Donations and Legacies
+Get Advice
+Criminal Injuries Compensation Authority
+Equality, Diversity & Inclusion
+FAQs
+Health & Safety
+Misconduct
+PFEW Maternity Guide
+Pensions & Injury Awards
+Sickness
+Offers & Discounts
+Motorfinity
+Motor Source Group
+Police Insure
+Police Mutual
+Vertu Motors
+W Web Design & Hosting
+Service Providers
+Carpenters Group
+Chesterton Grant
+DGM Solicitors
+Gorvins Solicitors
+Harvey Howell Solicitors
+Lund Bennett
+Police Treatment Centres
+Ralli Solicitors
+Reflect Financial
+Serve & Protect
+The Ben Fund
+The Police Children’s Charity
+Slater and Gordon
+National Police Healthcare Scheme
+Wilson Grange Mortgages
+Holiday Lets
+Home
+Charitable Trust
+Charitable Trust Application Form
+Charitable Trust Application Form
+(Registered Charity No. 1119125)
+Loading…
+
+### Monthly Lottery Draw Application
+
+Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-lottery/
+
+90 Days Notice Calculator: Tue, 29 September 2026
+
+Join the Merseyside Police Federation monthly charity lottery. All proceeds support the Charitable Trust.
+
 ## Pensions and Injury Awards
 
 ### Pensions & Injury Awards
 
 Source: https://merpolfed.org.uk/resource-centre/pensions-injury-awards/
-
-#### Pensions & Injury Awards
-
-Home » Get Advice » Pensions & Injury Awards
 
 ##### Pensions
 
@@ -10016,6 +10237,7 @@ https://www.polfed.org/support/pensions/pension-remedy-faqs/
 
 ##### Injury Awards
 
+It is a regrettable fact that police duty can give rise to incidents in which officers sustain injury through no fault of their own. Such incidents can occur in many different ways, whether on police premises, through assaults, road traffic collisions, as a result of faulty police equipment or through the negligence of other officers.
 Please remember that by virtue of Regulation 6, Police (Injury Benefit) Regulations 2006 reference injury received in the execution of duty by a member of a police force means an injury received in the execution of that person’s duty while on duty or while on a journey necessary to enable him to report for duty or return home after duty,
 
 Many officers are still unaware of their Industrial Injury entitlements and as a result officers are financially missing out and are potentially in the longer term putting themselves at risk.
@@ -10146,8 +10368,6 @@ Source: https://merpolfed.org.uk/resource-centre/health-safety/
 
 #### Health & Safety
 
-Home » Get Advice » Health & Safety
-
 The Police Federation is recognised as having the same status as a trade union for the purpose of the Health and Safety at Work Act (HSWA) and any Regulation made under the Act.
 
 All appointed Safety Reps have received training to at least Institute of Occupation Safety and Health (IOSH) standard. Under the health and safety banner our safety reps work closely with management to identify and eradicate risks to the health and well being of our members.
@@ -10171,79 +10391,6 @@ We would also ask that you ensure that you comply with the force’s accident an
 - The role of Merseyside Police H&S Reps
 - Blood borne viruses in the workplace
 - The Federation’s Inspectors Wellbeing Booklet
-
-### Quick Ref Guide (PDF)
-
-Source: https://merpolfed.org.uk/wp-content/uploads/2025/02/quickref.pdf
-
-Quick Reference Guide
-January 2025
-This guide provides Branch Boards with a basic summary of members’
-main terms and conditions.
-Produced and issued by Policy, PFEW HQ – January 2025 1
-Contents
-Quick Reference Guide .............................................................................................................. 9
-The Federation ..................................................................................................................... 10
-Branch Boards .................................................................................................................. 10
-National Board ................................................................................................................. 10
-Membership of the Federation ........................................................................................ 10
-Section 1 Pay and allowances .................................................................................................. 12
-1.A Pay ................................................................................................................................. 12
-Pay ......................................................................................................................... 12
-Pay award .............................................................................................................. 12
-Constables’ pay scale ............................................................................................. 13
-Pay Progression Standard ...................................................................................... 13
-Holiday pay ............................................................................................................ 14
-London weighting .................................................................................................. 15
-Part time working and pay for additional hours worked ...................................... 16
-1.B Allowances ..................................................................................................................... 17
-Location in Regulations ......................................................................................... 17
-Motor vehicle allowances ...................................................................................... 17
-Dog handler’s allowance ....................................................................................... 18
-London allowance .................................................................................................. 18
-London transitional supplement ........................................................................... 19
-South East England allowance ............................................................................... 19
-South East England transitional supplement ........................................................ 20
-Bonus payments .................................................................................................... 20
-Targeted variable payments (TVPs) ....................................................................... 20
-Team recognition award ........................................................................................ 21
-Unsocial hours allowance ...................................................................................... 21
-Away from home overnight allowance ................................................................. 21
-Produced and issued by Policy, PFEW HQ – January 2025 2
-Hardship allowance ............................................................................................... 22
-On call allowance ................................................................................................... 23
-Replacement allowance ........................................................................................ 23
-Protection allowance ............................................................................................. 23
-Allowances and maternity leave (Geldart case) .................................................... 24
-1.C Expenses ........................................................................................................................ 25
-Location in Regulations ......................................................................................... 25
-Reimbursement of medical charges ...................................................................... 25
-Removal expenses ................................................................................................. 25
-Relocation expenses: rent ..................................................................................... 26
-Food and accommodation expenses ..................................................................... 26
-Relevant travelling expenses ................................................................................. 26
-1.D Acting up allowance, temporary salary and temporary promotion ............................. 27
-Location in Regulations ......................................................................................... 27
-Acting up allowance – Annex UU .......................................................................... 27
-Temporary salary – Annex I ................................................................................... 27
-Temporary promotion – Annex J ........................................................................... 28
-Section 2 Working times and patterns .................................................................................... 30
-2.A Officers serving on part time arrangements ................................................................. 30
-PNB circular 2014/9 and translation into regulations ........................................... 30
-Part time appointments ........................................................................................ 31
-Additional hours worked by officers who work part time .................................... 31
-2.B Duty time ....................................................................................................................... 33
-Location in Regulations ......................................................................................... 33
-Constables and Sergeants: duty rosters ................................................................ 33
-Constables and Sergeants: normal period of duty ................................................ 34
-Constables and Sergeants: Variable Shift Arrangements (VSAs) .......................... 34
-Inspectors and Chief Inspectors: duty time ........................................................... 34
-All federated ranks: travelling time treated as duty ............................................. 35
-Produced and issued by Policy, PFEW HQ – January 2025 3
-Working Time Regulations (WTRs) ........................................................................ 35
-Carryover annual leave during Covid pandemic ................................................... 3
-
-_[Excerpt only. This is a large reference document; read the full version at https://merpolfed.org.uk/wp-content/uploads/2025/02/quickref.pdf]_
 
 ### Health & Safety at Work Act 1974 (PDF)
 
@@ -10822,8 +10969,6 @@ Source: https://merpolfed.org.uk/resource-centre/misconduct/
 
 #### Misconduct
 
-Home » Get Advice » Misconduct
-
 Please find our guidance on Police Misconduct from the perspective of your Police Federation. If you follow the links below, they will hopefully answer any queries you have. If you do not understand any aspect, please contact either your local Federation Representative, or ring the Federation Office for guidance.
 
 Should you believe yourself to be subject to any misconduct matters you should contact the Federation at the earliest opportunity.
@@ -10832,42 +10977,74 @@ Should you believe yourself to be subject to any misconduct matters you should c
 #### #
 What are the Standards of Professional Behaviour?
 
-**They are applicable on and off duty.**__Honesty and Integrity__
 
-Police officers are honest, act with integrity and do not compromise or abuse their position.__Authority, Respect and Courtesy__
+
+
+**They are applicable on and off duty.**
+
+__Honesty and Integrity__
+
+Police officers are honest, act with integrity and do not compromise or abuse their position.
+
+__Authority, Respect and Courtesy__
 
 Police officers act with self-control and tolerance, treating members of the public and colleagues with respect and courtesy.
 
-Police officers do not abuse their powers or authority and respect the rights of all individuals.__Equality and Diversity__
+Police officers do not abuse their powers or authority and respect the rights of all individuals.
 
-Police officers act with fairness and impartiality. They do not discriminate unlawfully or unfairly.__Use of Force__
+__Equality and Diversity__
 
-Police officers only use force to the extent that it is necessary, proportionate and reasonable in all the circumstances.__Orders and Instructions__
+Police officers act with fairness and impartiality. They do not discriminate unlawfully or unfairly.
+
+__Use of Force__
+
+Police officers only use force to the extent that it is necessary, proportionate and reasonable in all the circumstances.
+
+__Orders and Instructions__
 
 Police officers only give and carry out lawful orders and instructions.
 
-Police officers abide by police regulations, force policies and lawful orders.__Duties and Responsibilities__
+Police officers abide by police regulations, force policies and lawful orders.
 
-Police officers are diligent in the exercise of their duties and responsibilities.__Confidentiality__
+__Duties and Responsibilities__
 
-Police officers treat information with respect and access or disclose it only in the proper course of police duties.__Fitness for Duty__
+Police officers are diligent in the exercise of their duties and responsibilities.
 
-Police officers when on duty or presenting themselves for duty are fit to carry out their responsibilities.**Discreditable Conduct**
+__Confidentiality__
+
+Police officers treat information with respect and access or disclose it only in the proper course of police duties.
+
+__Fitness for Duty__
+
+Police officers when on duty or presenting themselves for duty are fit to carry out their responsibilities.
+
+**Discreditable Conduct**
 
 Police officers behave in a manner which does not discredit the police service or undermine public confidence in it, whether on or off duty.
 
-Police officers report any action taken against them for a criminal offence, any conditions imposed on them by a court or the receipt of any penalty notice.**Challenging and Reporting Improper Conduct**
+Police officers report any action taken against them for a criminal offence, any conditions imposed on them by a court or the receipt of any penalty notice.
+
+**Challenging and Reporting Improper Conduct**
 
 Police officers report, challenge or take action against the conduct of colleagues which has fallen below the Standards of Professional Behaviour.
 
 #### #
 What is the difference between misconduct and gross misconduct?
 
+
+
+
 What is the difference between misconduct and gross misconduct?
 
 Cases will be subjected to assessment.
 
-For the purposes of making the assessment and any decision on the seriousness of the conduct the following definitions will be applied:-**Misconduct** – a breach of the Standards of Professional Behaviour.**Gross misconduct** – a breach of the Standards of Professional Behaviour so serious that dismissal would be justified.**Unsatisfactory performance or unsatisfactory attendance** – an inability or failure of a police officer to perform the duties of the role or rank he or she is currently undertaking to a satisfactory standard or level.
+For the purposes of making the assessment and any decision on the seriousness of the conduct the following definitions will be applied:-
+
+**Misconduct** – a breach of the Standards of Professional Behaviour.
+
+**Gross misconduct** – a breach of the Standards of Professional Behaviour so serious that dismissal would be justified.
+
+**Unsatisfactory performance or unsatisfactory attendance** – an inability or failure of a police officer to perform the duties of the role or rank he or she is currently undertaking to a satisfactory standard or level.
 
 An assessment may determine that the conduct alleged amounts to an allegation of unsatisfactory performance rather than one of misconduct. In such circumstances the matter should be referred to be dealt with under the UPP policy.
 
@@ -10879,6 +11056,9 @@ The same principle applies where the initial assessment suggests that the matter
 
 #### #
 Will I get a notice regarding any complaints or investigations?
+
+
+
 
 It is imperative if you are served with a notice of investigation by PSD or the IPCC you seek advice from a trained federation representative if you require representation and advice. The officer who issues the notice or PSD should forward a copy to the Federation Office at your request, but to avoid any misunderstandings it should be scanned and e- mailed to the federation office at federation.office@merseyside.pnn.police.uk
 
@@ -10898,11 +11078,13 @@ The notice will:
 - Inform the police officer that he or she may provide, within 10 working days of receipt of the notice (unless this period is extended by the investigator) a written or oral statement relating to any matter under investigation and he or she (or their police friend) may provide any relevant documents to the investigator within this time.
 - Inform the police officer that whilst he or she does not have to say anything, it may harm their case if he or she does not mention when interviewed or when providing any information within the relevant time limits something which he or she later relies on in any misconduct proceedings or special case hearing or at an appeal meeting or Police Appeals Tribunal.
 
-
 The notice should clearly describe in unambiguous language the particulars of the conduct that it is alleged fell below the standards expected of a police officer.
 
 #### #
 How will the investigation against me be conducted?
+
+
+
 
 The purpose of an investigation is to:
 
@@ -10927,7 +11109,14 @@ The purpose is to enable a fair and balanced investigation report to be prepared
 #### #
 What is the difference between a misconduct meeting and a misconduct hearing?
 
-There are two types of misconduct proceedings:**Misconduct Meeting** – for cases where there is a case to answer in respect of misconduct and where the maximum outcome would be a final written warning. These are normally chaired by an officer of the rank of Chief Inspector.**Misconduct Hearing** – for cases where there is a case to answer in respect of gross misconduct or where the police officer has a live final written warning and there is a case to answer in respect of a further act of misconduct. The maximum outcome at this hearing would be dismissal from the police service without notice.
+
+
+
+There are two types of misconduct proceedings:
+
+**Misconduct Meeting** – for cases where there is a case to answer in respect of misconduct and where the maximum outcome would be a final written warning. These are normally chaired by an officer of the rank of Chief Inspector.
+
+**Misconduct Hearing** – for cases where there is a case to answer in respect of gross misconduct or where the police officer has a live final written warning and there is a case to answer in respect of a further act of misconduct. The maximum outcome at this hearing would be dismissal from the police service without notice.
 
 From 1 May 2015, the default position for misconduct hearings is that they are held in public. A notice advertising a hearing must be published by the Force on its website at least five working days before the day on which the hearing is to take place. The advert will name the officer subject of the hearing, and will mention the subject matter of the investigation, unless such disclosure is deemed inappropriate. Representations can be submitted for anonymity and also for the hearing to be heard in private but this decision is for the chair on representations by your representative or legal representative prior to the hearing.
 
@@ -10935,6 +11124,9 @@ Since January 2016 all hearings are chaired by a pool of legally qualified indep
 
 #### #
 What Representation can I receive?
+
+
+
 
 If you are subject to a criminal allegation then as long as you fulfil the funding requirements you can access the services of our retained solicitors Slater & Gordon Solicitors. We also utilise Haworth and Gallagher and Hogan Brown solicitors. The rules regarding funding rules are complex and complicated but as a rule of thumb it has to be within the duties of a police officer carrying out your role.
 
@@ -10958,12 +11150,177 @@ Those who have legal expenses cover on household insurance policies please read 
 #### #
 Post Incident Procedure
 
+
+
+
 **Post-Incident Procedures (PIP) will begin in all situations following police contact that may have:**
 
 - Resulted in death or serious injury
 - Revealed failings in command
 - Caused danger to officers or the public.
 
+If the above criteria are not met, the Force should still consider the proportionate application of these procedures, where appropriate.
+
+The College of Policing has produced a new policy for incidents involving death or serious injury (DSI) which is the guidance that all Post-Incident Managers (PIM) use when a PIP is enacted.
+
+The benefits of effectives PIPs can make all the difference between ‘career death’ or keeping the job officers love. There are currently two PIM suites, one for firearms incidents and one for non-firearm incidents.
+
+Merseyside Police Federation has supported a large number officers through the PIP process with a number of reps having been trained to the same level as the PIM. We provide staff on call to cover any PIP.
+
+If you are involved in a PIP you should consider the following:
+
+You may be treated as a suspect or a witness. This is a very fine line. It is in your interest that if you are being treated as a suspect you should say nothing until legal advice has been obtained. You have legal rights under the PACE Act 1984 and these should not be compromised.
+
+If, however, you are being treated as a witness then remember all conversations are disclosable.
+
+Ask the PIM to contact the Police Federation which can arrange legal advice and other support including contact with relatives, refreshments and so on. Initial notes should only be made subject to medical and legal advice.
+
+The Manual of Guidance recognises that statements should only be made after officers have overcome any initial shock of the incident. Be guided as to when you are ready by medical advice, a solicitor or the Federation.
+
+The full procedure is detailed in the guidance but please be assured that the Federation will guide and support you throughout this process.
+
+**They are applicable on and off duty.**
+
+__Honesty and Integrity__
+
+Police officers are honest, act with integrity and do not compromise or abuse their position.
+
+__Authority, Respect and Courtesy__
+
+Police officers act with self-control and tolerance, treating members of the public and colleagues with respect and courtesy.
+
+Police officers do not abuse their powers or authority and respect the rights of all individuals.
+
+__Equality and Diversity__
+
+Police officers act with fairness and impartiality. They do not discriminate unlawfully or unfairly.
+
+__Use of Force__
+
+Police officers only use force to the extent that it is necessary, proportionate and reasonable in all the circumstances.
+
+__Orders and Instructions__
+
+Police officers only give and carry out lawful orders and instructions.
+
+Police officers abide by police regulations, force policies and lawful orders.
+
+__Duties and Responsibilities__
+
+Police officers are diligent in the exercise of their duties and responsibilities.
+
+__Confidentiality__
+
+Police officers treat information with respect and access or disclose it only in the proper course of police duties.
+
+__Fitness for Duty__
+
+Police officers when on duty or presenting themselves for duty are fit to carry out their responsibilities.
+
+**Discreditable Conduct**
+
+Police officers behave in a manner which does not discredit the police service or undermine public confidence in it, whether on or off duty.
+
+Police officers report any action taken against them for a criminal offence, any conditions imposed on them by a court or the receipt of any penalty notice.
+
+**Challenging and Reporting Improper Conduct**
+
+Police officers report, challenge or take action against the conduct of colleagues which has fallen below the Standards of Professional Behaviour.
+
+What is the difference between misconduct and gross misconduct?
+
+Cases will be subjected to assessment.
+
+For the purposes of making the assessment and any decision on the seriousness of the conduct the following definitions will be applied:-
+
+**Misconduct** – a breach of the Standards of Professional Behaviour.
+
+**Gross misconduct** – a breach of the Standards of Professional Behaviour so serious that dismissal would be justified.
+
+**Unsatisfactory performance or unsatisfactory attendance** – an inability or failure of a police officer to perform the duties of the role or rank he or she is currently undertaking to a satisfactory standard or level.
+
+An assessment may determine that the conduct alleged amounts to an allegation of unsatisfactory performance rather than one of misconduct. In such circumstances the matter should be referred to be dealt with under the UPP policy.
+
+Equally an assessment may determine that the matter is more suitable to be dealt with through the grievance procedure or may be an issue of direction and control. In such cases the procedures for dealing with such matters, as outlined in Force Policy will be used.
+
+The matter may be moved up to a level of gross misconduct or down to a level of misconduct. In the interests of fairness to the police officer, where a further severity assessment is made which alters the original assessment then the police officer will be informed and will be provided with the reasons for the change in the assessment.
+
+The same principle applies where the initial assessment suggests that the matter is one of isconduct or gross misconduct but subsequent investigation reveals that it is not, and may be, for example, one of unsatisfactory performance. In such cases the police officer will be informed that the matter is now not being considered as a matter of misconduct
+
+It is imperative if you are served with a notice of investigation by PSD or the IPCC you seek advice from a trained federation representative if you require representation and advice. The officer who issues the notice or PSD should forward a copy to the Federation Office at your request, but to avoid any misunderstandings it should be scanned and e- mailed to the federation office at federation.office@merseyside.pnn.police.uk
+
+Please note that this notice carries a set timescale for the Officer to respond regarding the allegation, as outlined at bullet point 8 below, you are advised to seek early Federation representation in relation to any such matters.
+
+Written notification will be given to the police officer concerned by the investigator appointed to investigate the case, advising them that their conduct is under investigation.
+
+The notice will:
+
+- Inform the police officer that there is to be an investigation of their potential breach of the Standards of Professional Behaviour and inform the police officer of the name of the investigator who will investigate the matter.
+- Describe the conduct that is the subject of the investigation and how that conduct is alleged to have fallen below the Standards of Professional Behaviour.
+- Inform the police officer concerned of the appropriate authority’s (or investigator’s in a matter dealt with under the 2002 Act) assessment of whether the conduct alleged, if proved, would amount to misconduct or gross misconduct
+- Inform the police officer of whether, if the case were to be referred to misconduct proceedings, those would be likely to be a misconduct meeting or misconduct hearing.
+- Inform the police officer that if the likely form of any misconduct proceedings changes the police officer will be notified of this together with the reasons for that change.
+- Inform the police officer of their right to seek advice from their staff association or any other body and who the police officer may choose to act as their police friend.
+- Inform the police officer that if their case is referred to a misconduct hearing or special case hearing, he or she has the right to be legally represented by a relevant lawyer. If the police officer elects not to be so represented then he or she may be represented by a police friend. The notice will also make clear that if he or she elects not to be legally represented then he or she may be dismissed or receive any other disciplinary outcome without being so represented.
+- Inform the police officer that he or she may provide, within 10 working days of receipt of the notice (unless this period is extended by the investigator) a written or oral statement relating to any matter under investigation and he or she (or their police friend) may provide any relevant documents to the investigator within this time.
+- Inform the police officer that whilst he or she does not have to say anything, it may harm their case if he or she does not mention when interviewed or when providing any information within the relevant time limits something which he or she later relies on in any misconduct proceedings or special case hearing or at an appeal meeting or Police Appeals Tribunal.
+
+The notice should clearly describe in unambiguous language the particulars of the conduct that it is alleged fell below the standards expected of a police officer.
+
+The purpose of an investigation is to:
+
+- Gather evidence to establish the facts and circumstances of the alleged misconduct
+- Establish on the balance of probabilities, (more likely than not) based on the evidence and taking into account all of the circumstances, whether there is a case to answer in respect of either misconduct or gross misconduct or that there is no case to answer.
+- Identify any learning for the individual or the organisation.
+
+The overall aim is a proportionate and balanced investigation, carried out as soon as possible after any alleged misconduct comes to notice and that the investigation is carried out as quickly as possible allowing for the complexity of the case.
+
+Where the investigation identifies that the issue is one of performance rather than misconduct, the police officer should be informed as soon as possible that the matter is now being treated as an issue of performance.
+
+The investigator must ensure that the police officer is kept informed of the progress of the investigation. It is also good practice to keep the police friend informed of progress at the same time.
+
+The investigator is required to notify the police officer of the progress of the investigation at least every 4 weeks from the start of the investigation.
+
+The police officer or their police friend, acting on the police officer’s instructions, is encouraged to suggest at an early stage any line of enquiry that would assist the investigation and to pass to the investigator any material they consider relevant to the enquiry. If it is a criminal allegation it is advisable to seek advice from your legal representation prior to this. We would advise that any instructions should be via the Police Friend and not direct to the investigating officer.
+
+The investigator (under the Conduct Regulations or the 2002 Act) has a duty to consider the suggestions submitted to them. The investigator should consider and document reasons for following or not following any submissions made by the police officer or their police friend with a view to ensuring that the investigation is as fair as possible. The suggestions may involve a further suggested line of investigation or further examination of a particular witness.
+
+The purpose is to enable a fair and balanced investigation report to be prepared and where appropriate made available for consideration at a misconduct meeting/hearing and to negate the need (except where necessary) for witnesses to attend a meeting/hearing.
+
+There are two types of misconduct proceedings:
+
+**Misconduct Meeting** – for cases where there is a case to answer in respect of misconduct and where the maximum outcome would be a final written warning. These are normally chaired by an officer of the rank of Chief Inspector.
+
+**Misconduct Hearing** – for cases where there is a case to answer in respect of gross misconduct or where the police officer has a live final written warning and there is a case to answer in respect of a further act of misconduct. The maximum outcome at this hearing would be dismissal from the police service without notice.
+
+From 1 May 2015, the default position for misconduct hearings is that they are held in public. A notice advertising a hearing must be published by the Force on its website at least five working days before the day on which the hearing is to take place. The advert will name the officer subject of the hearing, and will mention the subject matter of the investigation, unless such disclosure is deemed inappropriate. Representations can be submitted for anonymity and also for the hearing to be heard in private but this decision is for the chair on representations by your representative or legal representative prior to the hearing.
+
+Since January 2016 all hearings are chaired by a pool of legally qualified independent barristers. The panel will be completed by a senior officer from the force usually of the rank of Supt or Ch Supt and an independent member again selected from a pool normally with experience is this field of discipline outside of the organisation.
+
+If you are subject to a criminal allegation then as long as you fulfil the funding requirements you can access the services of our retained solicitors Slater & Gordon Solicitors. We also utilise Haworth and Gallagher and Hogan Brown solicitors. The rules regarding funding rules are complex and complicated but as a rule of thumb it has to be within the duties of a police officer carrying out your role.
+
+Examples
+
+- Officer ‘A’ whilst engaged in the arrest of an offender causes injury and the offender alleges the police officer has used excess force in causing the injury.
+- Officer ‘B’ is alleged to have carried out questionable checks on computer systems which may not be for a policing purpose and the officer is saying they are legitimate checks.
+- Officer ‘C’ involved driving allegations whilst engaged in a pursuit or response run
+- Officer ‘D’ involved in a death after police contact or serious injury
+
+These are very simple examples.
+
+Examples which wouldn’t necessarily be covered by the rules.
+
+Funding applications for representation for these have to be made through Legal Insurance management Scheme (LIM) but this is only accessible of you are a member of Merseyside Police Federation Group Insurance Scheme.
+
+You may be entitled to be represented at a Hearing by a barrister depending on the facts of the case. Your Federation Friend will be able to advise you regarding this should you find yourself unfortunate enough to be going to a hearing.
+
+Those who have legal expenses cover on household insurance policies please read carefully. Where they may cover for a criminal allegation the small print normally excludes internal discipline.
+
+**Post-Incident Procedures (PIP) will begin in all situations following police contact that may have:**
+
+- Resulted in death or serious injury
+- Revealed failings in command
+- Caused danger to officers or the public.
 
 If the above criteria are not met, the Force should still consider the proportionate application of these procedures, where appropriate.
 
@@ -10991,8 +11348,6 @@ Source: https://merpolfed.org.uk/resource-centre/the-police-childrens-charity/
 
 #### The Police Children’s Charity
 
-Home » Get Advice » The Police Children’s Charity
-
 We have always sought to ensure that the The Police Children’s Charity evolves to reflect the changing character and nature of modern policing. Over the last few years we have made significant changes to our eligibility and financial benefit package in order to expand the financial support offered by the Trust. We found that the name lacks relevance for the new cohorts coming in and has also been said to not be inclusive for the National Forces we represent. The Trustees have therefore decided to rename the Charity to better represent the work that we do. We are now relaunching the Charity as ‘The Police Children’s Charity.’
 
 The Police Children’s Charity are pleased to announce that we will be running an Amnesty during April, May and June 2022. During these months only, eligible roles will be able to start donating to the Charity and be eligible to receive help without the usual 12 month wait (subject to individual assessment). We have also added the newly eligible roles of PCSOs, Special Constables, Detention and Custody Officers and Police Staff Investigators, including CSIs & Civilian Investigators.
@@ -11002,6 +11357,8 @@ We have contacted your payroll department to advise of the name change and attac
 The past two years have been difficult for the Police Family and we recognise that the demand for our services will only increase. The Police Children’s Charity has recently added Serving role grants, providing more help when needed. We hope that by offering this Amnesty, we are able to appeal to all those who have previously not signed up or cancelled their donations to the Charity during their career.
 
 During the Amnesty months, the DRCE team will be hosting Virtual information sessions on Teams. We hope that you will be able to attend these sessions to better understand the work of the Charity and grants available. The dates will be:
+
+24.03.2022 – 10am
 
 29.03.2022 – 10am
 
@@ -11020,8 +11377,6 @@ Finally, to run alongside the Amnesty, we are running a __Competition__ to win a
 Source: https://merpolfed.org.uk/resource-centre/equality-diversity/
 
 #### Equality, Diversity & Inclusion
-
-Home » Get Advice » Equality, Diversity & Inclusion
 
 The Merseyside Police Federation is committed to providing advice, guidance and support to our members in relation to Equality and Diversity matters.
 
@@ -11043,56 +11398,78 @@ Source: https://merpolfed.org.uk/resource-centre/sickness/
 
 #### Sickness
 
-Home » Get Advice » Sickness
+This page gives an overview to some of the issues surrounding reporting unfit for duty through sickness. Further information is available from your Federation representative, the Federation office, or from the Merseyside Police Attendance Management Policy. See elsewhere on this site for additional information if you have been injured in duty.
 
 ##### Information
 
-###### Reporting Sickness Absence
+##### #
+Reporting Sickness Absence
+
 
 If an officer is unable to report for work due to sickness or injury, they are responsible for personally informing their supervisor of the reason for their absence, a likely date of return, and any action they are taking to overcome the condition (e.g. visiting their doctor). This should be done the day or days before the officer is due to work their next shift, or as soon as possible after the start of the working day. It is helpful if the officer can provide a contact telephone number for the duration of their absence. Other than in exceptional circumstances, the message should not be passed to the supervisor by a partner, family member, colleague, voice mail or text message.
 
-###### Subsequent Absence
+##### #
+Subsequent Absence
+
 
 If absence continues beyond the first day, contact should be made by the absent officer (or in exceptional circumstances by someone on their behalf) on a regular basis as determined by the supervisor. This is to allow the supervisor to offer advice or assistance, and to plan for the absence in the workplace. If the sickness continues beyond seven calendar days, the officer should submit a medical certificate from their GP to their supervisor at the earliest opportunity. Medical certificates are required throughout the period of sickness (after the initial seven days), and it is important that there is no break in the dates that they cover.
 
-###### Home Visits
+##### #
+Home Visits
+
 
 Officers who are on sick leave should be visited regularly by a supervisor, to ensure any welfare needs are addressed and to encourage a return to work. It also provides the opportunity to discuss any concerns the individual may have about their absence and review the support that can be provided. It is not acceptable for an officer to refuse contact whilst on sick leave. Meetings may take place at an alternative agreed location if requested by the officer.
 
-###### Illness At Work
+##### #
+Illness At Work
+
 
 Where an individual attends work and becomes ill during working hours, causing them to go home, that day will not be counted as a sickness absence for either Statutory Sick Pay or on the individuals sickness record, regardless of how long the individual was in work on that day.
 
-###### Reporting fit for duty
+##### #
+Reporting fit for duty
 
-Officers should ensure that their supervisor (or other nominated person) is informed of the days that they are fit to return to work, even if this is a rest day, Bank Holiday, or has been booked as annual leave. Where an officer is fit to return to work before the date given on a GP's medical certificate, they should obtain a certificate from their GP confirming that they are fit to return. When an officer returns to work, they will have a 'return to work' interview with a supervisor.
 
-###### Reporting fit for duty
+Officers should ensure that their supervisor (or other nominated person) is informed of the days that they are fit to return to work, even if this is a rest day, Bank Holiday, or has been booked as annual leave. Where an officer is fit to return to work before the date given on a GP’s medical certificate, they should obtain a certificate from their GP confirming that they are fit to return. When an officer returns to work, they will have a ‘return to work’ interview with a supervisor.
 
-Officers should ensure that their supervisor (or other nominated person) is informed of the days that they are fit to return to work, even if this is a rest day, Bank Holiday, or has been booked as annual leave. Where an officer is fit to return to work before the date given on a GP's medical certificate, they should obtain a certificate from their GP confirming that they are fit to return. When an officer returns to work, they will have a 'return to work' interview with a supervisor.
+##### #
+Reporting fit for duty
 
-###### Alternatives to reporting sick
+
+Officers should ensure that their supervisor (or other nominated person) is informed of the days that they are fit to return to work, even if this is a rest day, Bank Holiday, or has been booked as annual leave. Where an officer is fit to return to work before the date given on a GP’s medical certificate, they should obtain a certificate from their GP confirming that they are fit to return. When an officer returns to work, they will have a ‘return to work’ interview with a supervisor.
+
+##### #
+Alternatives to reporting sick
+
 
 Officers should not report sick to meet personal or domestic needs. This would constitute misconduct. There are other options that can be discussed with a supervisor, such as taking annual leave, TOIL, or discretionary / compassionate leave.
 
-###### Payment of salary during long term sickness
+##### #
+Payment of salary during long term sickness
 
-The Secretary of State's determination of sick pay under regulation 28 of the Police regulations 2003 provides that a member of a police force who is absent on sick leave shall be entitled to full pay for six months, in any one year period. Thereafter, the member becomes entitled to half pay for six months, in any one year period.
+
+The Secretary of State’s determination of sick pay under regulation 28 of the Police regulations 2003 provides that a member of a police force who is absent on sick leave shall be entitled to full pay for six months, in any one year period. Thereafter, the member becomes entitled to half pay for six months, in any one year period.
 
 **Officers who believe they may find themselves in this situation should contact the Federation Office, and for those contributing to the Group Insurance Scheme, please contact the Federation regarding sick pay benefit and to check eligibility, as per the scheme benefits booklet.
 **
 
 The Chief Constable retains the discretion, however, to extend the period of entitlement to, as appropriate, full pay or half pay. For further details as to how this would affect you, please contact the Federation office.
 
-###### Sickness whilst on annual leave
+##### #
+Sickness whilst on annual leave
+
 
 If an officer becomes sick whilst on annual leave, they should verbally inform their supervisor immediately if they wish to take sick leave rather than annual leave. The request shall be followed in writing. Thereafter the officer should follow the sickness reporting procedures as laid down above. Sickness cannot be reported retrospectively after returning from annual leave.
 
-###### Attendance at court whilst sick
+##### #
+Attendance at court whilst sick
+
 
 An officer who is required to attend court whilst on sick leave should do so, unless their GP submits a medical certificate indicating that they are not fit to attend. Officer who do attend court whilst on sick leave should not wear uniform during their court appearance and should be given assistance with travelling to and from court if necessary, along with any other support required.
 
-###### Permission to go on holiday whilst on sick leave
+##### #
+Permission to go on holiday whilst on sick leave
+
 
 Officers who have booked a holiday prior to being absent on sick leave, or who have been advised by their GP that a holiday would expedite their recovery should advise their supervisor of the circumstances as soon as possible, who will liaise with the occupational health department. The officer may take their holiday if the occupational health advisor or Force medical advisor agrees with the GPs recommendation that the holiday will not impede their recovery. Officers who fail to seek permission to take their holiday may be subject to disciplinary action.
 
@@ -11102,16 +11479,20 @@ Source: https://merpolfed.org.uk/resource-centre/faqs/
 
 #### FAQs
 
-Home » Get Advice » FAQs
-
 #### #
 I had to remain at work at the end of my shift after nights going onto a rest day what can I claim?
+
+
+
 
 If you are required to work over following a night shift and this is going into you rest day, you are entitled to claim 1 hour overtime at time & a half. After that hour if you still have to remain on duty you will get a minimum of 4 hours at time & a half even if the period of overtime is less than 4 hours. You do not lose the 1st half an hour.
 
 
 #### #
 I have had to remain at the end of my shift what can I claim?
+
+
+
 
 **If you work overtime after hours on your scheduled tour of duty, and you were not informed of the overtime prior to the commencement of this tour of duty, it is classed as unplanned overtime and you cannot claim overtime for the first 30 minutes worked.**
 
@@ -11133,6 +11514,9 @@ An officer retiring today will get an extra £1,640 in their lump sum and an ext
 #### #
 I have had to return from Annual Leave to attend court, what can I claim?
 
+
+
+
 You will be entitled to the following:
 
 **Recalled for 1 day or 2 days** an additional 2 days annual leave for each day recalled or 1 days annual leave & 1 days pay at double time, for each day.
@@ -11148,6 +11532,9 @@ Under PNB Circular No.03/15 – The above compensation also applies to officers 
 #### #
 What can I claim for working on a bank holiday?
 
+
+
+
 Working on a bank holiday will always be paid at the rate of DOUBLE TIME whether for payment or time off. This also applies to part time working officers.
 
 When a bank holiday falls on a rest day, the bank holiday always take precedence, the rest day MUST be re-rostered to another day (after consultation with the officer) The re-rostered day is a rest day and all conditions applying to rest days apply to it. Should the officer then be required to work on the bank holiday he/she would get paid or have time off at the rate of double time, (officers choice)
@@ -11160,6 +11547,9 @@ The authority of an Assistant Chief Constable is required for officers to work o
 #### #
 I was told I had to start my shift earlier than scheduled, what can I claim?
 
+
+
+
 Where the time at which an officer is due to commence a rostered tour of duty is brought forward without due notice (less than 8 hours) so that they are required to commence duty on a day in which they have already completed their normal period of duty. The time for which they are on duty before the rostered commencement time shall be reckonable as overtime and also taken into account as part of that tour of duty. The force day commences at 7 A.M.
 
 If you are given more than 8 hours notice of the duty change then your working day merely starts at the new time. If the time you are brought on at is before 7 A.M. following a period of rest days then you will be eligible to claim rest day over time (minimum 4 hours)
@@ -11167,6 +11557,9 @@ If you are given more than 8 hours notice of the duty change then your working d
 
 #### #
 I am being asked to change my duties at short notice, can they do that?
+
+
+
 
 The Chief Officer shall cause to be published duty rosters for members of his/her force after full consultation with the Joint Branch Board at intervals not exceeding 12 months and not later than 1 month before the date in which it starts. Each roster will set out for at least 3 months the following:
 
@@ -11185,12 +11578,18 @@ Changes to rosters should only be made after full consideration of welfare, oper
 #### #
 My rest day was cancelled for an operational reason, I am now no longer required to work on that day as they have scaled the operation down, what am I entitled to?
 
+
+
+
 When an officers rest day is cancelled in anticipation of an operational need for which in any event he/she is not required to attend for duty:
 
 Where the officer is told with more than 7 days (and less than 15 days) notice that he/she will not after all be required to work on his/her rest day, he/she will take the rest day with no compensation. Where the officer is given less than 8 days notice he/she can choose between taking the rest day with no compensation or working on the rest day with compensation in accordance with police regulations
 
 #### #
 What travelling time can I claim when working on a rest day?
+
+
+
 
 Where an officer is required to duty on a public holiday or on a rostered rest day his/her period of duty shall include the time occupied by him/her travelling to & from his/her place of duty. This will be disregarded where the period of duty exceeds 6 hours.
 
@@ -11199,6 +11598,9 @@ Travelling expenses may also be claimed, for the journey, this ceases when there
 
 #### #
 I was recalled to duty from home, what could I claim?
+
+
+
 
 Travel time between home and your usual place of duty is generally not duty time.
 
@@ -11212,7 +11614,10 @@ In calculating any period of overtime in respect of being recalled between two t
 
 
 #### #
-My children's school was unexpectedly closed for the day & they was sent home, I couldn't arrange childcare, do I have to use annual leave or time off in-lieu to care for them?
+My children’s school was unexpectedly closed for the day & they was sent home, I couldn’t arrange childcare, do I have to use annual leave or time off in-lieu to care for them?
+
+
+
 
 A police officer may take time off because of the unexpected disruption or termination of arrangements for the care of a dependant, or
 
@@ -11235,11 +11640,17 @@ This also covers when a dependant falls ill, gives birth or is injured or assaul
 #### #
 What will I get paid if I work after 8 p.m.?
 
+
+
+
 Officers from the rank of constable to chief inspector will receive an additional 10 per cent of their basic pay for all hours worked between 8.00pm and 6.00am, including overtime. This payment is not pensionable and should be paid for each full hour actually worked. Where overtime is worked between 8.00pm and 6.00pm, the rate of the allowance is still 10 per cent of basic pay, not 10 per cent of the overtime rate. The allowance is paid in full in respect of each full hour worked – the ‘Queen’s half hour’ is not excluded.
 
 
 #### #
 What will I get paid if I have to work away from home?
+
+
+
 
 Changes to the arrangements for officers serving away from their normal place of duty (including on ‘mutual aid’ in another force area):
 
@@ -11253,7 +11664,159 @@ The Secretary of State’s approval for the existing mutual aid arrangements set
 
 
 #### #
-As part of my role I'm being required to work away from my normal parade station. Can the force do this on a regular basis and what are my rights?
+As part of my role I’m being required to work away from my normal parade station. Can the force do this on a regular basis and what are my rights?
+
+
+
+
+Yes the force can require you to work away from your normal place of duty.
+
+Under regulation 22 police regulations & determinations when you are working at a place other than your normal parade station then travel time has to be included into the working time. You can claim travel expenses for any excess of travel beyond your normal parade station.
+
+Under the workforce agreement made between the Chief Officer and police federation. It clearly defines that travel time is to be included as working time when travelling on the Chief Officers instruction between home and place of duty, not being the member’s usual place of duty, at any time other than the rostered starting or finishing time for the day which also complies with police regulations & determinations.
+
+In respect of officers finishing early or starting late from their scheduled tour of duty this does occur as the LPU do not want to pay out overtime for travelling to and from work, but the regulation does state ” time spent in travel outside of rostered duty hours” which does suggest that officers are expected to work their rostered shift and anything additional having been added to the working time would be overtime.
+
+__REGULATION 22 ANNEX E REFERS__
+
+Duty 22. – (1) The Secretary of State shall determine –
+
+(e) the circumstances in which travelling time may be treated as duty
+
+(3) In making a determination under paragraph (1)(e) the Secretary of State may –
+
+(a) confer on the chief officer discretion to fix a limit on the travelling time which is to be treated as duty; (Limited to 1 hour for West Midlands)
+
+__ANNEX E DETERMINATION FOR REGULATION 22__
+
+9) WORKING TIME
+
+The following periods are to be treated as if they were additional periods of working time for the purposes of regulation 2(1) of the Working Time Regulations 1998;
+
+a) time spent in travel, outside of rostered duty hours and not covered by paragraph 5 of this Annex, to and from duty at a place other than the normal place of duty;
+
+West Midlands Police policy A6, paragraph 7 Special Journeys.
+
+Parade other than normal parade station. Journeys necessitated by a requirement to parade elsewhere than at the officers normal place of duty, in which case payment will be made for any additional travel costs involved. In this context ‘additional’ is to be interpreted as the difference between the officers cost of travel to his/her normal place of duty and the cost of travel to the temporary place of duty.
+
+Travel time in the West Midlands is set by the Chief Constable and is 1 hour. Within police regulations when you are working away from your normal place of duty, travel time has to be included as additional working time. Therefore, regardless of your tour of duty you are rostered to work you are able to incorporate an hours travelling time and any extra hours worked is overtime.
+
+1st Example – you work 7 hours plus 1 hours travel (for a scheduled 8 hour day), any extra work over and above 7 hours is overtime.
+
+2nd Example – you work 8 hours plus 1 hours travel (for a scheduled 9 hour day), any extra work over and above 8 hours is overtime.
+
+
+If you are required to work over following a night shift and this is going into you rest day, you are entitled to claim 1 hour overtime at time & a half. After that hour if you still have to remain on duty you will get a minimum of 4 hours at time & a half even if the period of overtime is less than 4 hours. You do not lose the 1st half an hour.
+
+
+**If you work overtime after hours on your scheduled tour of duty, and you were not informed of the overtime prior to the commencement of this tour of duty, it is classed as unplanned overtime and you cannot claim overtime for the first 30 minutes worked.**
+
+For example, if your tour of duty is 14.30 x 22.30, you cannot claim overtime until 23.00. Any overtime you claim after that is at time and a third, for payment, or if you wish to claim time off, for the overtime, then for every completed 15 minutes, you are entitled to claim 1 unit and for every 3 units you work, you are given 1 bonus unit.
+
+If you work unplanned overtime on 4 occasions during the same week then on the 5th and any other occasion in which you may have to work overtime you no longer lose the first half hour for the rest of that week.
+
+If you were asked to work overtime prior to the commencement of your tour of duty this is planned overtime and you do not lose the first half an hour when calculating how much time you have worked over.
+
+You may like to know why you lose the first half an hour. The reason is shown below.
+
+In 1994 the first 30 minutes of casual overtime on the first four occasions was bought out for £270. Police officers basic, pensionable pay increased by £270 and that figure has increased with every pay rise since that date and is now worth £445. These half hours weren’t just given up.
+
+So, far from “working for The Queen” you are, and always have been, paid for these half hours whether you work them or not. As the compensation forms part of your pensionable pay, you will continue to be paid for these half hours (in your pension) long after you have ceased working as a police officer.
+
+An officer retiring today will get an extra £1,640 in their lump sum and an extra £212 per annum in their pension – all because of that deal in 1994.
+
+
+You will be entitled to the following:
+
+**Recalled for 1 day or 2 days** an additional 2 days annual leave for each day recalled or 1 days annual leave & 1 days pay at double time, for each day.
+
+**Recalled for 3 days or more** As above for the first two days then 1.5 days annual leave or 1-day annual leave & half days pay at double time in lieu of each such day recalled thereafter.
+
+Regulation 33 covers the above. Annex 0, Paragraph 5(a) of Police Regulations and Determinations 2003, which goes on to say under Paragraph 5(b);
+
+This paragraph applies to a period of absence from duty of 3 or more days, where at least one of the days is a day of annual leave and the other days, if not days of annual leave, are rostered rest days, days taken in lieu of overtime, public holidays (or days taken off in lieu thereof) or monthly leave days, or any combination thereof.
+
+Under PNB Circular No.03/15 – The above compensation also applies to officers actually recalled from annual leave, but also to annual leave that has been pre-booked/scheduled
+
+Working on a bank holiday will always be paid at the rate of DOUBLE TIME whether for payment or time off. This also applies to part time working officers.
+
+When a bank holiday falls on a rest day, the bank holiday always take precedence, the rest day MUST be re-rostered to another day (after consultation with the officer) The re-rostered day is a rest day and all conditions applying to rest days apply to it. Should the officer then be required to work on the bank holiday he/she would get paid or have time off at the rate of double time, (officers choice)
+
+If an officer is informed that he/she is required to work on a bank holiday with less than 8 days notice, then in addition to getting paid double time for the bank holiday (or time off) he/she would also be entitled to another day off which shall be notified to him/her within 4 days of notification of the requirement and which shall be treated for the purpose of this regulation as a bank holiday.
+
+The authority of an Assistant Chief Constable is required for officers to work on a PHL with less than 15 days notice
+
+
+Where the time at which an officer is due to commence a rostered tour of duty is brought forward without due notice (less than 8 hours) so that they are required to commence duty on a day in which they have already completed their normal period of duty. The time for which they are on duty before the rostered commencement time shall be reckonable as overtime and also taken into account as part of that tour of duty. The force day commences at 7 A.M.
+
+If you are given more than 8 hours notice of the duty change then your working day merely starts at the new time. If the time you are brought on at is before 7 A.M. following a period of rest days then you will be eligible to claim rest day over time (minimum 4 hours)
+
+
+The Chief Officer shall cause to be published duty rosters for members of his/her force after full consultation with the Joint Branch Board at intervals not exceeding 12 months and not later than 1 month before the date in which it starts. Each roster will set out for at least 3 months the following:
+
+- His/her rest days.
+- Public Holidays in which he/she may be required to do duty on.
+- The time at which his/her scheduled daily period of duty begins & end.
+- For part time members his/her free days.
+- Intervals of at least 11 hours between the end and the beginning of the next shift.
+- An interval between rostered rest days not exceeding 7 days.
+
+Where alterations are made to an annual duty roster after its publication these changes must arise from the exigencies of duty (unless they are made at the officer’s own request or have otherwise been agreed with the joint branch board). The term exigencies of duty, should be interpreted as relating to situations where a pressing demand, need or requirement is perceived that is not reasonably avoidable and necessitates a change of roster. In this context the word, pressing, relates to the expected situation at the time when the duty is to be performed rather than the time when the duty roster is changed, i.e. the reasons for a change may be known many months in advance but still be pressing.
+
+Changes to rosters should only be made after full consideration of welfare, operational and practical circumstances rather than purely on financial grounds. Because rosters are produced annually a number of unforeseen reasons for changes may subsequently arise. It is clearly not possible to produce an exhaustive list of all of the potential reasons, which may necessitate changes. However, by way of example, unforeseen public order situations, court attendance and essential training would justify changes to rostered duties. An officer should be told as soon as the requirement for the change is known and at the latest, by midnight on the calendar day before the changed period of duty commences.
+
+
+When an officers rest day is cancelled in anticipation of an operational need for which in any event he/she is not required to attend for duty:
+
+Where the officer is told with more than 7 days (and less than 15 days) notice that he/she will not after all be required to work on his/her rest day, he/she will take the rest day with no compensation. Where the officer is given less than 8 days notice he/she can choose between taking the rest day with no compensation or working on the rest day with compensation in accordance with police regulations
+
+Where an officer is required to duty on a public holiday or on a rostered rest day his/her period of duty shall include the time occupied by him/her travelling to & from his/her place of duty. This will be disregarded where the period of duty exceeds 6 hours.
+
+Travelling expenses may also be claimed, for the journey, this ceases when there is no travel time included in the overtime.
+
+
+Travel time between home and your usual place of duty is generally not duty time.
+
+Such travel time shall only be treated as a period of duty when you are:
+
+- Required to perform your normal daily period of duty in more than our tour (Split Duty) Or
+- Recalled to work between two tours of duty and you travel to and from your home between tours.
+
+
+In calculating any period of overtime in respect of being recalled between two tours of duty, an officer can only claim for the time worked plus travelling time (1 hour). The minimum of 4 hours pay for a recall to duty has been abolished.
+
+
+A police officer may take time off because of the unexpected disruption or termination of arrangements for the care of a dependant, or
+
+To deal with an incident which involves a child of the member and which occurs unexpectedly in a period during which an educational establishment, which the child attends, is responsible for him/her.
+
+Leave taken as time off for dependants shall be treated as duty, but does not apply unless the member tells his/her chief officer the reason for his/her absence as soon as reasonably practicable. Best practice would be to inform a line supervisor of your circumstances ASAP after you become aware of it.
+
+A “dependant” means, in relation to a member of a police force:
+
+a) a spouse,
+
+b) a child,
+
+c) a parent,
+
+d) a person who lives in the same household as the member, otherwise than by reason of being his employee, tenant, lodger or boarder.
+
+This also covers when a dependant falls ill, gives birth or is injured or assaulted or in consequence of the death of a dependant.
+
+Officers from the rank of constable to chief inspector will receive an additional 10 per cent of their basic pay for all hours worked between 8.00pm and 6.00am, including overtime. This payment is not pensionable and should be paid for each full hour actually worked. Where overtime is worked between 8.00pm and 6.00pm, the rate of the allowance is still 10 per cent of basic pay, not 10 per cent of the overtime rate. The allowance is paid in full in respect of each full hour worked – the ‘Queen’s half hour’ is not excluded.
+
+
+Changes to the arrangements for officers serving away from their normal place of duty (including on ‘mutual aid’ in another force area):
+
+- these changes apply to those officers who are deployed away from their normal place of duty whether in or out of force
+- a new ‘Away from home overnight’ allowance of £50 will be introduced and will be payable for every night on which an officer is ‘held in reserve’
+- an officer is ‘held in reserve’ if he or she is serving away from their normal place of duty and is required to stay in a particular, specified place rather than being allowed to return home. An officer is not ‘held in reserve’ if he or she is serving away from their normal place of duty only by reason of being on a training course or carrying out routine enquiries
+- payment of a new hardship allowance of £30 per night if ‘proper accommodation’ is not provided to an officer who is ‘held in reserve’
+- the definition of ‘proper accommodation’ is a single occupancy room with use of en suite bathroom facilities
+
+The Secretary of State’s approval for the existing mutual aid arrangements set out in PNB circulars 86/15, 88/9 and 95/8 (often known as the ‘Hertfordshire agreement’) is withdrawn. Officers on mutual aid should now be paid in accordance with the determinations for the hours they work, including where applicable overtime and travelling time.
+
 
 Yes the force can require you to work away from your normal place of duty.
 
@@ -11297,31 +11860,54 @@ Travel time in the West Midlands is set by the Chief Constable and is 1 hour. Wi
 #### #
 What are the Standards of Professional Behaviour?
 
-**They are applicable on and off duty.**__Honesty and Integrity__
 
-Police officers are honest, act with integrity and do not compromise or abuse their position.__Authority, Respect and Courtesy__
+
+
+**They are applicable on and off duty.**
+
+__Honesty and Integrity__
+
+Police officers are honest, act with integrity and do not compromise or abuse their position.
+
+__Authority, Respect and Courtesy__
 
 Police officers act with self-control and tolerance, treating members of the public and colleagues with respect and courtesy.
 
-Police officers do not abuse their powers or authority and respect the rights of all individuals.__Equality and Diversity__
+Police officers do not abuse their powers or authority and respect the rights of all individuals.
 
-Police officers act with fairness and impartiality. They do not discriminate unlawfully or unfairly.__Use of Force__
+__Equality and Diversity__
 
-Police officers only use force to the extent that it is necessary, proportionate and reasonable in all the circumstances.__Orders and Instructions__
+Police officers act with fairness and impartiality. They do not discriminate unlawfully or unfairly.
+
+__Use of Force__
+
+Police officers only use force to the extent that it is necessary, proportionate and reasonable in all the circumstances.
+
+__Orders and Instructions__
 
 Police officers only give and carry out lawful orders and instructions.
 
-Police officers abide by police regulations, force policies and lawful orders.__Duties and Responsibilities__
+Police officers abide by police regulations, force policies and lawful orders.
 
-Police officers are diligent in the exercise of their duties and responsibilities.__Confidentiality__
+__Duties and Responsibilities__
 
-Police officers treat information with respect and access or disclose it only in the proper course of police duties.__Fitness for Duty__
+Police officers are diligent in the exercise of their duties and responsibilities.
 
-Police officers when on duty or presenting themselves for duty are fit to carry out their responsibilities.**Discreditable Conduct**
+__Confidentiality__
+
+Police officers treat information with respect and access or disclose it only in the proper course of police duties.
+
+__Fitness for Duty__
+
+Police officers when on duty or presenting themselves for duty are fit to carry out their responsibilities.
+
+**Discreditable Conduct**
 
 Police officers behave in a manner which does not discredit the police service or undermine public confidence in it, whether on or off duty.
 
-Police officers report any action taken against them for a criminal offence, any conditions imposed on them by a court or the receipt of any penalty notice.**Challenging and Reporting Improper Conduct**
+Police officers report any action taken against them for a criminal offence, any conditions imposed on them by a court or the receipt of any penalty notice.
+
+**Challenging and Reporting Improper Conduct**
 
 Police officers report, challenge or take action against the conduct of colleagues which has fallen below the Standards of Professional Behaviour.
 
@@ -11329,9 +11915,18 @@ Police officers report, challenge or take action against the conduct of colleagu
 #### #
 What is the difference between misconduct and gross misconduct?
 
+
+
+
 Cases will be subjected to assessment.
 
-For the purposes of making the assessment and any decision on the seriousness of the conduct the following definitions will be applied:-**Misconduct** – a breach of the Standards of Professional Behaviour.**Gross misconduct** – a breach of the Standards of Professional Behaviour so serious that dismissal would be justified.**Unsatisfactory performance or unsatisfactory attendance** – an inability or failure of a police officer to perform the duties of the role or rank he or she is currently undertaking to a satisfactory standard or level.
+For the purposes of making the assessment and any decision on the seriousness of the conduct the following definitions will be applied:-
+
+**Misconduct** – a breach of the Standards of Professional Behaviour.
+
+**Gross misconduct** – a breach of the Standards of Professional Behaviour so serious that dismissal would be justified.
+
+**Unsatisfactory performance or unsatisfactory attendance** – an inability or failure of a police officer to perform the duties of the role or rank he or she is currently undertaking to a satisfactory standard or level.
 
 An assessment may determine that the conduct alleged amounts to an allegation of unsatisfactory performance rather than one of misconduct. In such circumstances the matter should be referred to be dealt with under the UPP policy.
 
@@ -11344,6 +11939,9 @@ The same principle applies where the initial assessment suggests that the matter
 
 #### #
 Will I get a notice regarding any complaints or investigations? (regulation 15 notice)
+
+
+
 
 It is imperative if you are served with a notice of investigation by PSD or the IPCC you seek advice from a trained federation representative if you require representation and advice. The officer who issues the notice or PSD should forward a copy to the Federation Office at your request, but to avoid any misunderstandings it should be scanned and e- mailed to the federation office at federation.office@merseyside.pnn.police.uk
 
@@ -11363,11 +11961,13 @@ The notice will:
 - Inform the police officer that he or she may provide, within 10 working days of receipt of the notice (unless this period is extended by the investigator) a written or oral statement relating to any matter under investigation and he or she (or their police friend) may provide any relevant documents to the investigator within this time.
 - Inform the police officer that whilst he or she does not have to say anything, it may harm their case if he or she does not mention when interviewed or when providing any information within the relevant time limits something which he or she later relies on in any misconduct proceedings or special case hearing or at an appeal meeting or Police Appeals Tribunal.
 
-
 The notice should clearly describe in unambiguous language the particulars of the conduct that it is alleged fell below the standards expected of a police officer.
 
 #### #
 How will the investigation against me be conducted?
+
+
+
 
 The purpose of an investigation is to:
 
@@ -11393,7 +11993,14 @@ The purpose is to enable a fair and balanced investigation report to be prepared
 #### #
 What is the difference between a misconduct meeting and a misconduct hearing?
 
-There are two types of misconduct proceedings:**Misconduct Meeting** – for cases where there is a case to answer in respect of misconduct and where the maximum outcome would be a final written warning. These are normally chaired by an officer of the rank of Chief Inspector.**Misconduct Hearing** – for cases where there is a case to answer in respect of gross misconduct or where the police officer has a live final written warning and there is a case to answer in respect of a further act of misconduct. The maximum outcome at this hearing would be dismissal from the police service without notice.
+
+
+
+There are two types of misconduct proceedings:
+
+**Misconduct Meeting** – for cases where there is a case to answer in respect of misconduct and where the maximum outcome would be a final written warning. These are normally chaired by an officer of the rank of Chief Inspector.
+
+**Misconduct Hearing** – for cases where there is a case to answer in respect of gross misconduct or where the police officer has a live final written warning and there is a case to answer in respect of a further act of misconduct. The maximum outcome at this hearing would be dismissal from the police service without notice.
 
 From 1 May 2015, the default position for misconduct hearings is that they are held in public. A notice advertising a hearing must be published by the Force on its website at least five working days before the day on which the hearing is to take place. The advert will name the officer subject of the hearing, and will mention the subject matter of the investigation, unless such disclosure is deemed inappropriate. Representations can be submitted for anonymity and also for the hearing to be heard in private but this decision is for the chair on representations by your representative or legal representative prior to the hearing.
 
@@ -11402,6 +12009,153 @@ Since January 2016 all hearings are chaired by a pool of legally qualified indep
 
 #### #
 What representation can I receive?
+
+
+
+
+If you are subject to a criminal allegation then as long as you fulfil the funding requirements you can access the services of our retained solicitors Slater & Gordon Solicitors. We also utilise Haworth and Gallagher and Hogan Brown solicitors. The rules regarding funding rules are complex and complicated but as a rule of thumb it has to be within the duties of a police officer carrying out your role.
+
+Examples
+
+- Officer ‘A’ whilst engaged in the arrest of an offender causes injury and the offender alleges the police officer has used excess force in causing the injury.
+- Officer ‘B’ is alleged to have carried out questionable checks on computer systems which may not be for a policing purpose and the officer is saying they are legitimate checks.
+- Officer ‘C’ involved driving allegations whilst engaged in a pursuit or response run
+- Officer ‘D’ involved in a death after police contact or serious injury
+
+These are very simple examples.
+
+Examples which wouldn’t necessarily be covered by the rules.
+
+- Allegations of drink drive.
+- Domestic disputes.
+- Allegations of conduct off duty.
+
+Funding applications for representation for these have to be made through Legal Insurance management Scheme (LIM) but this is only accessible of you are a member of Merseyside Police Federation Group Insurance Scheme.
+
+You may be entitled to be represented at a Hearing by a barrister depending on the facts of the case. Your Federation Friend will be able to advise you regarding this should you find yourself unfortunate enough to be going to a hearing.
+
+Those who have legal expenses cover on household insurance policies please read carefully. Where they may cover for a criminal allegation the small print normally excludes internal discipline.
+
+
+**They are applicable on and off duty.**
+
+__Honesty and Integrity__
+
+Police officers are honest, act with integrity and do not compromise or abuse their position.
+
+__Authority, Respect and Courtesy__
+
+Police officers act with self-control and tolerance, treating members of the public and colleagues with respect and courtesy.
+
+Police officers do not abuse their powers or authority and respect the rights of all individuals.
+
+__Equality and Diversity__
+
+Police officers act with fairness and impartiality. They do not discriminate unlawfully or unfairly.
+
+__Use of Force__
+
+Police officers only use force to the extent that it is necessary, proportionate and reasonable in all the circumstances.
+
+__Orders and Instructions__
+
+Police officers only give and carry out lawful orders and instructions.
+
+Police officers abide by police regulations, force policies and lawful orders.
+
+__Duties and Responsibilities__
+
+Police officers are diligent in the exercise of their duties and responsibilities.
+
+__Confidentiality__
+
+Police officers treat information with respect and access or disclose it only in the proper course of police duties.
+
+__Fitness for Duty__
+
+Police officers when on duty or presenting themselves for duty are fit to carry out their responsibilities.
+
+**Discreditable Conduct**
+
+Police officers behave in a manner which does not discredit the police service or undermine public confidence in it, whether on or off duty.
+
+Police officers report any action taken against them for a criminal offence, any conditions imposed on them by a court or the receipt of any penalty notice.
+
+**Challenging and Reporting Improper Conduct**
+
+Police officers report, challenge or take action against the conduct of colleagues which has fallen below the Standards of Professional Behaviour.
+
+
+Cases will be subjected to assessment.
+
+For the purposes of making the assessment and any decision on the seriousness of the conduct the following definitions will be applied:-
+
+**Misconduct** – a breach of the Standards of Professional Behaviour.
+
+**Gross misconduct** – a breach of the Standards of Professional Behaviour so serious that dismissal would be justified.
+
+**Unsatisfactory performance or unsatisfactory attendance** – an inability or failure of a police officer to perform the duties of the role or rank he or she is currently undertaking to a satisfactory standard or level.
+
+An assessment may determine that the conduct alleged amounts to an allegation of unsatisfactory performance rather than one of misconduct. In such circumstances the matter should be referred to be dealt with under the UPP policy.
+
+Equally an assessment may determine that the matter is more suitable to be dealt with through the grievance procedure or may be an issue of direction and control. In such cases the procedures for dealing with such matters, as outlined in Force Policy will be used.
+
+The matter may be moved up to a level of gross misconduct or down to a level of misconduct. In the interests of fairness to the police officer, where a further severity assessment is made which alters the original assessment then the police officer will be informed and will be provided with the reasons for the change in the assessment.
+
+The same principle applies where the initial assessment suggests that the matter is one of isconduct or gross misconduct but subsequent investigation reveals that it is not, and may be, for example, one of unsatisfactory performance. In such cases the police officer will be informed that the matter is now not being considered as a matter of misconduct
+
+
+It is imperative if you are served with a notice of investigation by PSD or the IPCC you seek advice from a trained federation representative if you require representation and advice. The officer who issues the notice or PSD should forward a copy to the Federation Office at your request, but to avoid any misunderstandings it should be scanned and e- mailed to the federation office at federation.office@merseyside.pnn.police.uk
+
+Please note that this notice carries a set timescale for the Officer to respond regarding the allegation, as outlined at bullet point 8 below, you are advised to seek early Federation representation in relation to any such matters.
+
+Written notification will be given to the police officer concerned by the investigator appointed to investigate the case, advising them that their conduct is under investigation.
+
+The notice will:
+
+- Inform the police officer that there is to be an investigation of their potential breach of the Standards of Professional Behaviour and inform the police officer of the name of the investigator who will investigate the matter.
+- Describe the conduct that is the subject of the investigation and how that conduct is alleged to have fallen below the Standards of Professional Behaviour.
+- Inform the police officer concerned of the appropriate authority’s (or investigator’s in a matter dealt with under the 2002 Act) assessment of whether the conduct alleged, if proved, would amount to misconduct or gross misconduct
+- Inform the police officer of whether, if the case were to be referred to misconduct proceedings, those would be likely to be a misconduct meeting or misconduct hearing.
+- Inform the police officer that if the likely form of any misconduct proceedings changes the police officer will be notified of this together with the reasons for that change.
+- Inform the police officer of their right to seek advice from their staff association or any other body and who the police officer may choose to act as their police friend.
+- Inform the police officer that if their case is referred to a misconduct hearing or special case hearing, he or she has the right to be legally represented by a relevant lawyer. If the police officer elects not to be so represented then he or she may be represented by a police friend. The notice will also make clear that if he or she elects not to be legally represented then he or she may be dismissed or receive any other disciplinary outcome without being so represented.
+- Inform the police officer that he or she may provide, within 10 working days of receipt of the notice (unless this period is extended by the investigator) a written or oral statement relating to any matter under investigation and he or she (or their police friend) may provide any relevant documents to the investigator within this time.
+- Inform the police officer that whilst he or she does not have to say anything, it may harm their case if he or she does not mention when interviewed or when providing any information within the relevant time limits something which he or she later relies on in any misconduct proceedings or special case hearing or at an appeal meeting or Police Appeals Tribunal.
+
+The notice should clearly describe in unambiguous language the particulars of the conduct that it is alleged fell below the standards expected of a police officer.
+
+The purpose of an investigation is to:
+
+- Gather evidence to establish the facts and circumstances of the alleged misconduct
+- Establish on the balance of probabilities, (more likely than not) based on the evidence and taking into account all of the circumstances, whether there is a case to answer in respect of either misconduct or gross misconduct or that there is no case to answer.
+- Identify any learning for the individual or the organisation.
+
+The overall aim is a proportionate and balanced investigation, carried out as soon as possible after any alleged misconduct comes to notice and that the investigation is carried out as quickly as possible allowing for the complexity of the case.
+
+Where the investigation identifies that the issue is one of performance rather than misconduct, the police officer should be informed as soon as possible that the matter is now being treated as an issue of performance.
+
+The investigator must ensure that the police officer is kept informed of the progress of the investigation. It is also good practice to keep the police friend informed of progress at the same time.
+
+The investigator is required to notify the police officer of the progress of the investigation at least every 4 weeks from the start of the investigation.
+
+The police officer or their police friend, acting on the police officer’s instructions, is encouraged to suggest at an early stage any line of enquiry that would assist the investigation and to pass to the investigator any material they consider relevant to the enquiry. If it is a criminal allegation it is advisable to seek advice from your legal representation prior to this. We would advise that any instructions should be via the Police Friend and not direct to the investigating officer.
+
+The investigator (under the Conduct Regulations or the 2002 Act) has a duty to consider the suggestions submitted to them. The investigator should consider and document reasons for following or not following any submissions made by the police officer or their police friend with a view to ensuring that the investigation is as fair as possible. The suggestions may involve a further suggested line of investigation or further examination of a particular witness.
+
+The purpose is to enable a fair and balanced investigation report to be prepared and where appropriate made available for consideration at a misconduct meeting/hearing and to negate the need (except where necessary) for witnesses to attend a meeting/hearing.
+
+
+There are two types of misconduct proceedings:
+
+**Misconduct Meeting** – for cases where there is a case to answer in respect of misconduct and where the maximum outcome would be a final written warning. These are normally chaired by an officer of the rank of Chief Inspector.
+
+**Misconduct Hearing** – for cases where there is a case to answer in respect of gross misconduct or where the police officer has a live final written warning and there is a case to answer in respect of a further act of misconduct. The maximum outcome at this hearing would be dismissal from the police service without notice.
+
+From 1 May 2015, the default position for misconduct hearings is that they are held in public. A notice advertising a hearing must be published by the Force on its website at least five working days before the day on which the hearing is to take place. The advert will name the officer subject of the hearing, and will mention the subject matter of the investigation, unless such disclosure is deemed inappropriate. Representations can be submitted for anonymity and also for the hearing to be heard in private but this decision is for the chair on representations by your representative or legal representative prior to the hearing.
+
+Since January 2016 all hearings are chaired by a pool of legally qualified independent barristers. The panel will be completed by a senior officer from the force usually of the rank of Supt or Ch Supt and an independent member again selected from a pool normally with experience is this field of discipline outside of the organisation.
+
 
 If you are subject to a criminal allegation then as long as you fulfil the funding requirements you can access the services of our retained solicitors Slater & Gordon Solicitors. We also utilise Haworth and Gallagher and Hogan Brown solicitors. The rules regarding funding rules are complex and complicated but as a rule of thumb it has to be within the duties of a police officer carrying out your role.
 
@@ -11432,33 +12186,75 @@ Source: https://merpolfed.org.uk/resource-centre/
 
 #### Get Advice
 
-Home » Get Advice
-
-- Equality & Diversity
-- FAQs
-- Health & Safety
-- Misconduct
-- Pensions & Injury Awards
-- Police Regs & Dets 03
-- Quick Ref Guide
-- Sickness
-- The Police Children's Charity
-
-Skip to content
-#### Get Advice
+-
 
 
-Home » Get Advice
+Equality & Diversity
 
-- Equality & Diversity
-- FAQs
-- Health & Safety
-- Misconduct
-- Pensions & Injury Awards
-- Police Regs & Dets 03
-- Quick Ref Guide
-- Sickness
-- The Police Children's Charity
+-
+
+
+FAQs
+
+-
+
+
+Health & Safety
+
+-
+
+
+Misconduct
+
+-
+
+
+Pensions & Injury Awards
+
+-
+
+Police Regs & Dets 03 -
+
+Quick Ref Guide -
+
+
+Sickness
+
+-
+
+
+The Police Children’s Charity
+
+
+###### Equality, Diversity & Inclusion
+
+The Merseyside Police Federation is committed to providing advice, guidance and support to our members in relation to Equality and Diversity matters.We…
+
+Find out more →### FAQs
+
+I had to remain at work at the end of my shift after nights going onto a rest day what can I…
+
+Find out more →### Health & Safety
+
+The Police Federation is recognised as having the same status as a trade union for the purpose of the Health and Safety…
+
+Find out more →### Misconduct
+
+Please find our guidance on Police Misconduct from the perspective of your Police Federation. If you follow the links below, they will…
+
+Find out more →### Pensions & Injury Awards
+
+Pensions The three Police Pension Schemes for Police Officers are currently managed on behalf of the force by XPS Services : -1.…
+
+Find out more →### Sickness
+
+This page gives an overview to some of the issues surrounding reporting unfit for duty through sickness. Further information is available from…
+
+Find out more →### The Police Children’s Charity
+
+We have always sought to ensure that the The Police Children's Charity evolves to reflect the changing character and nature of modern…
+
+Find out more →
 
 ### PFEW Maternity Guide (PDF)
 
@@ -12010,11 +12806,107 @@ Source: https://merpolfed.org.uk/offers-discounts/vertu-motors/
 
 #### Vertu Motors
 
-Home » Offers & Discounts » Vertu Motors
-
 As part of the Merseyside Police Federation’s Affinity Program, serving members and their partners can access exclusive leasing deals on a range of Peugeot vehicles, including competitive monthly rates with added benefits like free metallic paint—subject to terms, conditions, and status.
 
 The New Peugeot 3008 offers a blend of innovative design, advanced technology, and versatile powertrain options, making it an ideal choice for modern drivers. Available in Allure and GT trims with electric, plug-in hybrid, and hybrid variants, it features the signature PEUGEOT i-Cockpit with a 21-inch panoramic curved display, enhanced connectivity, and driver assistance systems for superior safety and convenience. With efficient electric ranges up to 435 miles, practical storage solutions, and premium interior finishes, the 3008 delivers a refined driving experience. Prices start from £34,650 on the road, effective from 1 May 2025, with various options for customisation including colours like Obsession Blue and Nera Black. For full specifications, pricing details, and technical information, view the embedded PDF guide below.
+
+### Motor Source Group
+
+Source: https://merpolfed.org.uk/offers-discounts/motor-source-group/
+
+#### Motor Source Group
+
+Allied to a 5-Star service, Motor Source Group offer a specialist new car service for all serving and ex-Police and are committed to listening to your needs and sourcing the right car for you. You’ve taken care of our community, now let us take care of you! You can take advantage of great savings across a wide range of makes and models including:
+
+
+
+Motor Source Group is an approved partner of the Federation of England and Wales and has great customer feedback, which you can read on the independent review site, Trust Pilot.
+
+### Motorfinity
+
+Source: https://merpolfed.org.uk/offers-discounts/motorfinity/
+
+#### Motorfinity
+
+##### Act Fast: Huge Discounts on Cars in Stock Now!
+
+Ready for your next car? Looking for incredible savings and lightning-fast delivery?
+
+Motorfinity has exclusive offers on in-stock vehicles, designed for those who need great deals and fast solutions. What’s waiting for you?
+
+- Massive savings on top manufacturers – drive your dream car for less
+- Quick delivery – your new car could be on your doorstep within 2 weeks
+- Exclusive discounts for NHS workers, Emergency Services, Armed Forces, Teachers & more
+
+Don’t wait! These limited-time deals are on a first come, first served basis and won’t last long.
+
+Browse now and claim your next car before it’s gone: https://motorfinity.uk/merpolfed
+
+Motorfinity offer fantastic deals across all makes and models, flexible finance options, and a hassle-free part-exchange service.
+
+Contact us today to secure your deal!
+
+Call 01636 558 885 and enquires with our friendly team today.
+
+#### CarDeals #ExclusiveSavings #QuickDelivery #Motorfinity #DriveYourDream
+
+### Police Mutual
+
+Source: https://merpolfed.org.uk/offers-discounts/police-mutual/
+
+#### Police Mutual
+
+##### May Newsletter
+
+##### Prize Draw
+
+A thank you from Police Mutual.
+
+As part of our ongoing support for the Police community, we’re giving away three £1,000 cash prizes and entry is totally free.
+
+Enter today for your chance to win https://bit.ly/4qGVxT1
+
+T&Cs apply: https://bit.ly/4t8wV7x
+
+Prize draw ends: 30/06/2026
+
+IMPORTANT INFORMATION
+
+The prize draw will take place on 01/07/2026. Prizes will be delivered within 30 days of the draw. The prize draw is open to UK residents aged 18 and over. You must be eligible for Police Mutual products. No purchase necessary. One entry per person.
+
+PMGI Limited, trading as Police Mutual is authorised and regulated by the Financial Conduct Authority. Financial Services Register No.114942. Registered in England & Wales No.1073408. Registered office: Brookfield Court, Selby Road, Leeds, LS25 1NB.
+
+### Offers & Discounts
+
+Source: https://merpolfed.org.uk/offers-discounts/
+
+#### Offers & Discounts
+
+Check out the drop down menu for all the current officers.
+
+###### Motor Source Group
+
+Visit Website Allied to a 5-Star service, Motor Source Group offer a specialist new car service for all serving and ex-Police and…
+
+Find out more →### Motorfinity
+
+Act Fast: Huge Discounts on Cars in Stock Now! Ready for your next car? Looking for incredible savings and lightning-fast delivery?Motorfinity has…
+
+Find out more →### Police Insure
+
+Find out more →### Police Mutual
+
+May Newsletter View the May newsletter here. Prize Draw A thank you from Police Mutual. As part of our ongoing support for…
+
+Find out more →### Vertu Motors
+
+As part of the Merseyside Police Federation's Affinity Program, serving members and their partners can access exclusive leasing deals on a range…
+
+Find out more →### W Web Design & Hosting
+
+Fast, secure website hosting with an exclusive discount for Merseyside Police Federation members.
+
+Find out more →
 
 ### Police Insure
 
@@ -12022,12 +12914,10 @@ Source: https://merpolfed.org.uk/offers-discounts/police-insure/
 
 Skip to content
 90 Days Notice Calculator:
-Tue, 1 September 2026
+Tue, 29 September 2026
 The Hub (For Reps)
 National Website
-Search ...
-Results
-View Your Reps
+Search
 Quick Ref Guide
 Home
 What We Do
@@ -12066,6 +12956,7 @@ Motor Source Group
 Police Insure
 Police Mutual
 Vertu Motors
+W Web Design & Hosting
 Service Providers
 Carpenters Group
 Chesterton Grant
@@ -12084,153 +12975,26 @@ National Police Healthcare Scheme
 Wilson Grange Mortgages
 Holiday Lets
 Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
 Offers & Discounts
-Motorfinity
-Motor Source Group
 Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Police Insure
-Home
-»
-Offers & Discounts
-»
 Police Insure
 
-### Offers & Discounts
+### W Web Design & Hosting
 
-Source: https://merpolfed.org.uk/offers-discounts/
+Source: https://merpolfed.org.uk/offers-discounts/w-web-design-hosting/
 
-#### Offers & Discounts
+#### W Web Design & Hosting
 
-Home » Offers & Discounts
+##### Professional Website Hosting with an Exclusive Federation Discount
 
-Check out the drop down menu for all the current officers.
+W Web Design & Hosting provides fast, secure and fully managed website hosting for individuals, businesses and organisations across Merseyside and beyond. As proud partners of the Merseyside Police Federation, and the team behind this very website, we offer federation members an exclusive discount on all of our hosting plans.
 
-Skip to content
-#### Offers & Discounts
+- Reliable UK hosting with free SSL certificates and daily backups
+- Free, straightforward migration of your existing website
+- Ongoing support and maintenance from a friendly, dedicated team
+- An exclusive discount for Merseyside Police Federation members
 
-
-Home » Offers & Discounts
-
-Check out the drop down menu for all the current officers.
-
-### Motor Source Group
-
-Source: https://merpolfed.org.uk/offers-discounts/motor-source-group/
-
-#### Motor Source Group
-
-Home » Offers & Discounts » Motor Source Group
-
-Allied to a 5-Star service, Motor Source Group offer a specialist new car service for all serving and ex-Police and are committed to listening to your needs and sourcing the right car for you. You’ve taken care of our community, now let us take care of you! You can take advantage of great savings across a wide range of makes and models including:
-
-Motor Source Group is an approved partner of the Federation of England and Wales and has great customer feedback, which you can read on the independent review site, Trust Pilot.
-
-### Motorfinity
-
-Source: https://merpolfed.org.uk/offers-discounts/motorfinity/
-
-#### Motorfinity
-
-Home » Offers & Discounts » Motorfinity
-
-##### Act Fast: Huge Discounts on Cars in Stock Now!
-
-Ready for your next car? Looking for incredible savings and lightning-fast delivery?
-
-Motorfinity has exclusive offers on in-stock vehicles, designed for those who need great deals and fast solutions. What’s waiting for you?
-
-- Massive savings on top manufacturers – drive your dream car for less
-- Quick delivery – your new car could be on your doorstep within 2 weeks
-- Exclusive discounts for NHS workers, Emergency Services, Armed Forces, Teachers & more
-
-Don’t wait! These limited-time deals are on a first come, first served basis and won’t last long.
-
-Browse now and claim your next car before it’s gone: https://motorfinity.uk/merpolfed
-
-Motorfinity offer fantastic deals across all makes and models, flexible finance options, and a hassle-free part-exchange service.
-
-Contact us today to secure your deal!
-
-Call 01636 558 885 and enquires with our friendly team today.
-
-#### CarDeals #ExclusiveSavings #QuickDelivery #Motorfinity #DriveYourDream
-
-### Police Mutual
-
-Source: https://merpolfed.org.uk/offers-discounts/police-mutual/
-
-#### Police Mutual
-
-Home » Offers & Discounts » Police Mutual
-
-##### May Newsletter
-
-##### Prize Draw
-
-A thank you from Police Mutual.
-
-As part of our ongoing support for the Police community, we’re giving away three £1,000 cash prizes and entry is totally free.
-
-Enter today for your chance to win https://bit.ly/4qGVxT1
-
-T&Cs apply: https://bit.ly/4t8wV7x
-
-Prize draw ends: 30/06/2026
-
-IMPORTANT INFORMATION
-
-The prize draw will take place on 01/07/2026. Prizes will be delivered within 30 days of the draw. The prize draw is open to UK residents aged 18 and over. You must be eligible for Police Mutual products. No purchase necessary. One entry per person.
-
-PMGI Limited, trading as Police Mutual is authorised and regulated by the Financial Conduct Authority. Financial Services Register No.114942. Registered in England & Wales No.1073408. Registered office: Brookfield Court, Selby Road, Leeds, LS25 1NB.
+Whether you need hosting for an existing site or a new website built from scratch, we are here to help. Get in touch and quote your federation membership to claim your discount.
 
 ### 0525 Peugeot 3008 Price And Spec Guide Myc0 C2 Version 2.4 Effective From 1St May 2025 (PDF)
 
@@ -13697,493 +14461,11 @@ be monitored.
 
 ## Service Providers
 
-### Gorvins Solicitors
-
-Source: https://merpolfed.org.uk/services/gorvins-solicitors/
-
-#### Gorvins Solicitors
-
-Home » Service Providers » Gorvins Solicitors
-
-**Gorvins has one of the leading teams of police family law solicitors in the UK.**
-
-Our family team are specialists in dealing with police personnel and their families in all areas of family law. Whatever your situation we have a commitment to provide excellent technical advice and a quality service to you.
-
-We work with you to ensure that you get the best possible outcome.
-
-Our family team specialise in all main areas of family law, particularly divorce and financial settlements thereon, children matters, cohabitation disputes, civil partnerships and Inheritance Act claims.
-
-Pivotal to this goal is our commitment to the recruitment and continuous training of highly competent staff who understand the legal technicalities and the complex infrastructure of the police force. With over 20 years experience in working with police forces across the UK we are able to speak your language and give you a “real” picture of the issues, timescales, and costs of your case.
-
-Gorvins solicitors hold regular surgeries at the Federation Office as well as by telephone.
-
-Police officers and support staff (including those who are retired) are invited to contact Gorvins to make an appointment to speak with one of our team if facing relationship difficulties.
-
-The initial consultation is free of charge.
-
-To arrange an appointment with us at the Federation Office or alternatively by telephone/Teams, please contact us on 0161 930 5151 and ask to be put through to our family team.
-
-Alternatively please e-mail: familyteam@gorvins.com
-
-### Serve & Protect
-
-Source: https://merpolfed.org.uk/services/serve-protect/
-
-#### Serve & Protect
-
-Home » Service Providers » Serve & Protect
-
-Sign up for Our Webinars for the 87 Pension Scheme Remedy**Here to Help You**
-
-Serve and Protect Credit Union is a not-for-profit organisation designed to help people in the police, prison, military, fire, and health services save money for their financial future and be there if they need to borrow throughout their career and beyond.
-
-We work with employers to make it as easy as possible for their employees to reach their financial goals via a range of savings accounts and personal loans.
-
-Regulated by the Financial Conduct Authority and the Prudential Regulation Authority
-
-Savings are protected up to £f85,000 by Financial Services Compensation Scheme
-
-Trusted by thousands of members for over two decades – Rated 4.9/5 on Feefo
-
-**Serve and Protect Credit Union launch latest Fixed Saver, offering a guaranteed return of 5% AER**
-
-Are you looking to earn a guaranteed return on your savings? Serve and Protect Credit Union have launched their latest fixed-rate savings account.
-
-Serve and Protect Credit Union (formerly Police Credit Union) are a not-for-profit organisation designed to help people in the police, prison, military, fire, and health services save money for their financial future.
-
-- Their Fixed Saver account allows you to deposit from £1,000 up to £10,000, with a guaranteed return of 5% AER over a term of 12 months.
-- Your savings with Serve and Protect Credit Union are also protected by the Financial Services Compensation Scheme, covering you up to £85,000.*
-
-
-By opening a Fixed Saver, you not only earn a competitive return on your savings, but you also play a vital role in providing affordable loans to those who serve and protect the nation.**Don’t miss out on this exclusive offer!**
-
-It’s available on a first-come-first-served basis, so act fast. The product is available throughout August 2024 and just requires you to complete a simple application online.
-
-Please Note: If you are not already a member of Serve and Protect, you can still apply, but you will have to do so by the 29th of August 2024.
-
-To apply or learn more about the Fixed Saver, visit: https://serveandprotectcu.co.uk/save/fixed-saver
-
-### Ralli Solicitors
-
-Source: https://merpolfed.org.uk/services/ralli-solicitors/
-
-#### Ralli Solicitors
-
-Home » Service Providers » Ralli Solicitors
-
-##### Personal Injury Surgery
-
-Jonathan Belcham of Ralli Solicitors has nearly 30 years experience advising and assisting police officers across the entire range of personal injury claims
-
-If you would like to discuss the circumstances of any injury please contact Jonathan via email : Jonathan.Belcham@rallisolicitors.co.uk or via the federation office email : Reception@merseyside.polfed.org and your details will be passed on to him.
-
-### Wilson Grange Mortgages
-
-Source: https://merpolfed.org.uk/services/wilson-grange-mortgages/
-
-Skip to content
-90 Days Notice Calculator:
-Tue, 1 September 2026
-The Hub (For Reps)
-National Website
-Search ...
-Results
-View Your Reps
-Quick Ref Guide
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Wilson Grange Mortgages
-Home
-»
-Service Providers
-»
-Wilson Grange Mortgages
-
-### Harvey Howell Solicitors
-
-Source: https://merpolfed.org.uk/services/harvey-howell-solicitors/
-
-Skip to content
-90 Days Notice Calculator:
-Tue, 1 September 2026
-The Hub (For Reps)
-National Website
-Search ...
-Results
-View Your Reps
-Quick Ref Guide
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Harvey Howell Solicitors
-Home
-»
-Service Providers
-»
-Harvey Howell Solicitors
-
-### Chesterton Grant
-
-Source: https://merpolfed.org.uk/services/chesterton-grant/
-
-#### Chesterton Grant
-
-Home » Service Providers » Chesterton Grant
-
-**FEE FREE MORTGAGE ADVICE FOR YOU, YOUR FRIENDS AND FAMILY**
-
-With access to independent advice our brokers can explore the whole of the marketplace on your behalf to enable you to secure the best possible deal.
-
-We can assist with:
-
-- First time buyers
-- Remortgages
-- Raising money for house expenses
-- Purchasing a second home or buy to let
-- Insurance (Life Insurance, Critical Illness Cover, Income Protection, Buildings & Contents
-
-Our advisers work with all lenders in the UK and can help with your individual situation.
-
-This is a service is available to you, and your friends and family.
-
-**With every completion, we will donate £50 back into the Merseyside Police Federation.**
-
-We have already been working with North Wales Police for over 15 years, with many members successfully helped.
-
-**We can work around your availability with shifts patterns, at a time convenient for you.**
-
-We also work with financial advisers who can help with pension tracing, investments & estate planning to members of Merseyside Police Federation, and your friends and family.
-
-**There is currently £26 billion sat in pension funds which are classed as missing or unclaimed.**
-
-**Please contact 01244 526 888 or merpolfed@chestertongrant.co.uk arrange an appointment.**
-
-### National Police Healthcare Scheme
-
-Source: https://merpolfed.org.uk/services/national-police-healthcare-scheme/
-
-#### National Police Healthcare Scheme
-
-Home » Service Providers » National Police Healthcare Scheme
-
-Skip to content
-#### National Police Healthcare Scheme
-
-
-Home » Service Providers » National Police Healthcare Scheme
-
-### Reflect Financial
-
-Source: https://merpolfed.org.uk/services/reflect-financial/
-
-#### Reflect Financial
-
-Home » Service Providers » Reflect Financial
-
-**Pre-Retirement Seminar Programme 2026**
-
-Helping you plan today, for a future of financial wellbeing.
-
-Welcome to Reflect Financial; a Financial Services Practice with a specialist team catering for the needs of serving and retired senior police officers across the UK.
-
-Our team has over three decades of experience within the financial services sector. The team comprises Financial Advisers: Philip Pearson, Adam Norris, and Tim Jackson QPM (retired Chief Superintendent and former National Secretary of the PSA).
-
-Click here to find out more about your specialist team.
-
-Our insightful Pre-Retirement seminars cover key topics including:
-
-- Managing Your Finances (fundamentals of financial planning)
-- Developing a Financial Plan (including investment strategy and risk)
-- Wills* & Estate Planning (input from specialist Solicitors)
-- Preparing for Retirement (non-financial planning considerations)
-- Personal Taxation (maximising tax-efficiency)
-- Understanding the Police Pension Schemes; the Remedy, and pension-related taxation
-
-matters (how and when to optimise your pension)
-
-*The writing of a Will involves the referral to a service that is separate and distinct from those offered by St. James’s Place. Wills and Powers of Attorney are not regulated by the Financial Conduct Authority.
-
-Intended primarily for those members who are within two years of retirement, members with 25 years or more service are also welcome to attend.
-
-Refreshments and a buffet lunch will be provided at each seminar.
-
-**Pre-Retirement Seminar 2026 Programme**
-
-The seminars will run from 9:15am – 4:30pm, the seminars will take place at the offices of Merseyside Police Federation, Malvern House, 13 Green Lane, Stoneycroft, Liverpool, L13 7DT on the following date:
-
-- Thursday 5th February
-- Thursday 18th June
-- Thursday 10th September
-- Thursday 19th November
-
-*To register for an upcoming seminar, please click here: https://forms.gle/ZuLpk5r451Ytr1P88*
-
-The value of an investment with St. James’s Place will be directly linked to the performance of the funds you select and the value can therefore go down as well as up. You may get back less than you invested.
-
-Reflect Financial Limited is an Appointed Representative of and represents only St. James’s Place Wealth Management plc (which is authorised and regulated by the Financial Conduct Authority) for the purpose of advising solely on the group’s wealth management products and services, more details of which are set out on the group’s website __www.sjp.co.uk/products__.
-
-### Lund Bennett Family Law Specialists
-
-Source: https://merpolfed.org.uk/services/lund-bennett-family-law-specialists/
-
-#### Lund Bennett Family Law Specialists
-
-Home » Service Providers » Lund Bennett Family Law Specialists
-
-Lund Bennett Law are a specialist Family Law solicitors practice. They have a wealth of experience in dealing with divorce, police pensions and finances on divorce and all children law matters.
-
-Established by founding partner Kirsten Bennett, a leading practitioner in Family Law.
-
-The firm offers robust advice and support – rated 5* on Review Solicitors – they provide access to some of the country’s best family lawyers.
-
-Lund Bennett Law offer police federation members, police personnel and family members discount on our legal rates. This also includes a free initial appointment at a time and venue convenient for you and fixed fees where applicable.
-
-Our Family Law Services include:
-
-- Divorce and Separation
-- Police Pension on Divorce
-- Financial Disputes upon Divorce
-- Pre and Post Nuptial Agreements
-- Child Arrangements
-- Adoption and Surrogacy
-- Domestic Abuse
-- Cohabitation and Unmarried Property Disputes
-
-
-You can book an appointment with Lund Bennett Family Law direct with them on 0161 924 0079 Lund Bennett | Family Law Solicitors | Cheshire & Manchester
-
-E Mail: info@lundbennett.co.uk
-
-Web: www.lundbennett.co.uk
-
-### DGM Solicitors
-
-Source: https://merpolfed.org.uk/services/dgm-solicitors/
-
-#### DGM Solicitors
-
-Home » Service Providers » DGM Solicitors
-
-We are pleased to announce that **DGM Solicitors** will be holding regular legal clinics at the Merseyside Police Federation office. These surgeries are scheduled for the **first Tuesday of every month**, providing members with the opportunity to receive expert legal advice and support directly from **John Greenall**, a specialist solicitor at the firm. The next clinic is confirmed for **Tuesday, 3rd March 2026**. Whether you have a specific legal query or require general guidance, John will be available on-site to assist. For further information or to discuss a matter outside of clinic hours, you can contact DGM Solicitors at **01244 457 472** or visit them at 21 Venture Point, Little Stanney, Chester.
-
 ### Service Providers
 
 Source: https://merpolfed.org.uk/services/
 
 #### Service Providers
-
-Home » Service Providers
 
 ##### Who Can Help?
 
@@ -14193,73 +14475,57 @@ The federation has followed some due diligence to ensure they are legitimate com
 
 Many of them hold surgeries at Green Lane and you can arrange to meet them here.
 
-### Slater and Gordon
+###### Carpenters Group
 
-Source: https://merpolfed.org.uk/services/slater-and-gordon/
+Serious Injury Team Carpenters Group’s Serious Injury Team provides specialist legal expertise for the most complex and life-altering personal injury claims. With…
 
-#### Slater and Gordon
+Find out more →### Chesterton Grant
 
-Home » Service Providers » Slater and Gordon
+FEE FREE MORTGAGE ADVICE FOR YOU, YOUR FRIENDS AND FAMILYWith access to independent advice our brokers can explore the whole of the…
 
-##### Family Law
+Find out more →### DGM Solicitors
 
-Our family law team have specialist expertise in assisting Police Federation members and have undergone an intense training programme ensuring they are fully equipped to advice on every aspect of police culture, pay, pensions and shift pattern essential to ensure the best results for their clients.
+We are pleased to announce that DGM Solicitors will be holding regular legal clinics at the Merseyside Police Federation office. These surgeries…
 
-We provide access to some of __the country’s best family lawyers__ and offer Police Federation members and police personnel **a free initial appointment at a time and venue that is convenient, and discounted rates**.
+Find out more →### Gorvins Solicitors
 
-Our family law services include:
+Gorvins has one of the leading teams of police family law solicitors in the UK. Our family team are specialists in dealing…
 
-- Police pensions on divorce
-- Divorce
-- Financial disputes upon divorce
-- Disputes concerning children
-- Civil partnership
-- Cohabitation issues and unmarried property disputes
-- Pre and post-nuptial agreements
-- Injunctions.
+Find out more →### Harvey Howell Solicitors
 
-##### Slater and Gordon Personal Injury
+Find out more →### Lund Bennett Family Law Specialists
 
-Accidents happen, especially in police work. Whether you have suffered an injury on or off duty, you need to __know what your rights are__ and where to turn to, so you get the compensation you deserve. Our specialists offer support with:
+Lund Bennett Law are a specialist Family Law solicitors practice. They have a wealth of experience in dealing with divorce, police pensions…
 
-- Road traffic accidents (either on or off duty)
-- Fatal accident claims
-- Defective equipment
-- Accidents in the workplace
-- Training accidents
-- Public liability claims
-- Accidents on other premises
-- Animal handling incidents
-- Occupational deafness
-- Employer liability claims including stress
+Find out more →### National Police Healthcare Scheme
 
-##### Meet Your Representative
+Visit National Police Healthcare Scheme Website
 
-Samantha Griffiths is a Solicitor at Slater and Gordon who is experienced in advising and assisting claimants across a range of personal injury claims.
+Find out more →### Ralli Solicitors
 
-Samantha can assist officers with their personal injury claims and can be contacted via email samantha.griffiths@slatergordon.uk or on 0330 995 6358
+Personal Injury Surgery Jonathan Belcham of Ralli Solicitors has nearly 30 years experience advising and assisting police officers across the entire range…
 
-If you would prefer a telephone/video appointment (Teams), Samantha is happy to accommodate
+Find out more →### Reflect Financial
 
-### Carpenters Group
+Pre-Retirement Seminar Programme 2026Helping you plan today, for a future of financial wellbeing.Welcome to Reflect Financial; a Financial Services Practice with a…
 
-Source: https://merpolfed.org.uk/services/carpenters-group/
+Find out more →### Serve & Protect
 
-#### Carpenters Group
+Sign up for Our Webinars for the 87 Pension Scheme RemedyHere to Help YouServe and Protect Credit Union is a not-for-profit organisation…
 
-Home » Service Providers » Carpenters Group
+Find out more →### Slater and Gordon
 
-##### Serious Injury Team
+Family Law Our family law team have specialist expertise in assisting Police Federation members and have undergone an intense training programme ensuring…
 
-Carpenters Group’s Serious Injury Team provides specialist legal expertise for the most complex and life-altering personal injury claims. With decades of experience supporting people following catastrophic injury, the team is trusted to handle high-value, sensitive cases with care, confidence and precision. Every case is approached with a deep understanding of the medical, rehabilitation and lifetime care needs involved, ensuring outcomes that are fair, proportionate, and robust.
+Find out more →### Wilson Grange Mortgages
 
-What sets our Serious Injury legal service apart is our human approach, backed by decades of experience and technical excellence. We work collaboratively with insurers, medical experts, and rehabilitation providers to help people rebuild their lives. From early intervention and proactive rehabilitation to thoughtful resolution strategies the Serious Injury team focus on supporting better outcomes for all involved.
+Find out more →No providers in this category yet.
 
-###### Find Out More
+### https://merpolfed.org.uk/services/national-police-healthcare-scheme/
 
-📖 Flip through our Serious Injury Brochure
+Source: https://merpolfed.org.uk/services/national-police-healthcare-scheme/
 
-**Website:** Serious and Catastrophic Injury at Carpenters Group
+_(No extractable text. Refer to the source link above.)_
 
 ## Holiday Lets
 
@@ -14268,8 +14534,6 @@ What sets our Serious Injury legal service apart is our human approach, backed b
 Source: https://merpolfed.org.uk/holiday-lets/
 
 #### Holiday Lets
-
-Home » Holiday Lets
 
 **Bookings for 2027 open in September 2026, exact date to be confirmed. Please do not call the office to book.**
 
@@ -14289,159 +14553,38 @@ Home » Holiday Lets
 
 Source: https://merpolfed.org.uk/forms/
 
-Skip to content
-90 Days Notice Calculator:
-Tue, 1 September 2026
-The Hub (For Reps)
-National Website
-Search ...
-Results
-View Your Reps
-Quick Ref Guide
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Forms
-Group Insurance Scheme – Online Nominee Form
+#### Forms
 
-### Malvern House Group Insurance 
-Trust Beneficiary Nomination Form
+###### 2027 Charity Ball
+
+Find out more →### Protected: Charitable Trust Application Form
+
+Find out more →### Protected: Charitable Trust Lottery Application Form
+
+Charitable Trust Lottery Application Form The Lottery has been established to support the work of Merseyside Police Federation Charitable Trust, run entirely…
+
+Find out more →
+
+### Group Insurance Scheme – Online Nominee Form
 
 Source: https://merpolfed.org.uk/forms/group-insurance-scheme-online-nominee-form/
 
-#### Malvern House Group Insurance Trust Beneficiary Nomination Form
+#### Group Insurance Scheme – Online Nominee Form
 
-**To:** The Trustees of Malvern House Group Insurance Scheme.
+##### Group Insurance Scheme — Online Nominee Form
 
-It is my wish that any benefits arising under the above scheme in the event of my death, should be paid in the proportions and to the person or persons indicated below, being either related to me or financially dependent upon me.
+Use this form to nominate who should receive your group insurance benefit. You may name up to four nominees; the proportions should total 100%. This nomination supersedes any previous nomination held on file.
 
-I understand that Trustees will not be bound by this expression of wish but request due consideration.
-
-I confirm that this expression of my wishes supersedes any previously made by me.
-
-Any and all lump sum benefits arising under the Scheme on the death of a member will be paid to beneficiaries as nominated below. Trustees of the Scheme will act in accordance with the powers contained in the Trust . A member may express a wish as to who should benefit although this will not be binding. If your circumstances change you can change nominees at any time.
-
-Please complete the details below, in submitting this form you consent for the details on our system to be amended if necessary and any new information to be held in line with our policy.
-
-If you want to add additional nominees, please get in contact with the office.
-
-### 2027 Charity Dinner Booking Form
+### 2027 Charity Ball
 
 Source: https://merpolfed.org.uk/forms/2027-charity-ball/
 
 Skip to content
 90 Days Notice Calculator:
-Tue, 1 September 2026
+Tue, 29 September 2026
 The Hub (For Reps)
 National Website
-Search ...
-Results
-View Your Reps
+Search
 Quick Ref Guide
 Home
 What We Do
@@ -14480,6 +14623,7 @@ Motor Source Group
 Police Insure
 Police Mutual
 Vertu Motors
+W Web Design & Hosting
 Service Providers
 Carpenters Group
 Chesterton Grant
@@ -14498,60 +14642,10 @@ National Police Healthcare Scheme
 Wilson Grange Mortgages
 Holiday Lets
 Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-2027 Charity Dinner Booking Form
+Forms
+2027 Charity Ball
+2027 Charity Ball
+Loading…
 
 ## Federation Policies
 
@@ -14559,128 +14653,27 @@ Holiday Lets
 
 Source: https://merpolfed.org.uk/policies/
 
-Skip to content
-90 Days Notice Calculator:
-Tue, 1 September 2026
-The Hub (For Reps)
-National Website
-Search ...
-Results
-View Your Reps
-Quick Ref Guide
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Policies
+#### Policies
+
+###### Access To Information
+
+The Police Federation of England and Wales (PFEW) is funded in part by police officers who pay subscriptions from their wages. It…
+
+Find out more →### Cookie Policy
+
+Merseyside Police Federation uses cookies on merpolfed.org.uk to improve your browsing experience and to personalise content. By using our site, you consent…
+
+Find out more →### Privacy Policy
+
+Merseyside Police Federation is committed to respecting your privacy. This privacy policy applies to members, staff, and all third parties. Unless stated…
+
+Find out more →
 
 ### Access To Information
 
 Source: https://merpolfed.org.uk/policies/access-to-information/
+
+#### Access To Information
 
 The Police Federation of England and Wales (PFEW) is funded in part by police officers who pay subscriptions from their wages. It is not a public body and not funded by the public and is the only staff association to be subject to Freedom of Information (FoI), which came into effect for the PFEW in April 2017. Much of the information you may ask for may already be on this website, so please take the time to search for what you need first.
 
@@ -14860,12 +14853,6 @@ Our Privacy Notice explains how we treat your personal information.
 
 Find out about our commitment to publishing in Welsh. Our Personal information charter explains how we treat your personal information. Read our policy on Social media use. Find out About our services.
 
-### National Website
-
-Source: https://polfed.org/
-
-Statement from Hampshire Police Federation and Police Federation of England and Wales 2 June 2026 National Secretary statement regarding Mukund Krishna 1 June 2026 Your 1987 Police Pension Scheme Lump Sum — What's Changed & What It Means 27 May 2026 Police Federation condemns ‘overnight’ cut to police pension lump sums 22 May 2026 Hands Off Our Rest Days: Federation warns as new data reveals officers are already owed 820,000 lost days off Shocking figures the equivalent of 2,240 years of lost time with families, lost recovery, and lost wellbeing. 12 May 2026 Response Policing Conference leaves officer feeling ‘proud to be in policing’ 5 May 2026 POLICE mag View the latest editions of the national magazine Member Value Report How the Police Federation helps you Pensions FAQs Common questions about the police pension scheme Quick Reference Guide for police officers A basic summary of your main terms and conditions
-
 ### Police Pension Scheme 1987 In England And Wales
 
 Source: https://www.gov.uk/government/publications/police-pension-scheme-1987-in-england-and-wales
@@ -14883,6 +14870,17 @@ Document and data tables set out the commutation factors for the 1987 police pen
 We are aware of accessibility issues with this publication.
 
 We are working to fix these. Read more about our accessible documents policy
+
+##### Updates to this page
+
+-
+New commutation factors published.
+
+-
+Updated guidance and factors published.
+
+-
+First published.
 
 ### The Management of Health and Safety at Work Regulations 1999
 
