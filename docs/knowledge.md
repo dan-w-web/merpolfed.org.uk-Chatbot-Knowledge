@@ -1,6 +1,6 @@
 # Merseyside Police Federation - Chatbot Knowledge Base
 
-_Last updated: 01 August 2026_
+_Last updated: 01 September 2026_
 
 _Source: https://merpolfed.org.uk_
 
@@ -35,8 +35,8 @@ Supporting the officers that support you
 
 Your Group Insurance Details Can Be Found Here
 
-View Group Insurance- 1st Prize of £750 PC 5507 Melissa Andrews
-- 2nd Prize of £500 Pens Leanne Everard
+View Group Insurance- 1st Prize of £750 PC 4022 Patricia McLeod
+- 2nd Prize of £500 Pens Jon Ward
 
 Following another glittering night at Crowne Plaza Liverpool, with over 350 guests in attendance, we are pleased to announce the two charities we supported — the Bobby Colleran Trust and Aftermath Support — will each receive seventeen thousand pounds towards their work.
 
@@ -196,86 +196,13 @@ Mather Ave/Trainer |
 07702 934648 |
 BarryA@merseyside.polfed.org |
 
-### Our Workplace Reps
-
-Source: https://merpolfed.org.uk/merseyside-police-federation/our-workplace-reps/
-
-Skip to content
-90 Days Notice Calculator:
-Fri, 30 October 2026
-The Hub (For Reps)
-National Website
-Search
-Quick Ref Guide
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-W Web Design & Hosting
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Home
-Merseyside Police Federation
-Our Workplace Reps
-Our Workplace Reps
-Under Maintenance
-This page is currently being worked on.
-
 ### Our Full-Time Reps
 
 Source: https://merpolfed.org.uk/merseyside-police-federation/our-full-time-reps/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -339,6 +266,79 @@ Home
 Merseyside Police Federation
 Our Full-Time Reps
 Our Full-Time Reps
+Under Maintenance
+This page is currently being worked on.
+
+### Our Workplace Reps
+
+Source: https://merpolfed.org.uk/merseyside-police-federation/our-workplace-reps/
+
+Skip to content
+90 Days Notice Calculator:
+Mon, 30 November 2026
+The Hub (For Reps)
+National Website
+Search
+Quick Ref Guide
+Home
+What We Do
+Contact Us
+Our Facilities
+Who’s Who
+Group Insurance
+Policy Documents
+Scheme Benefits Booklet
+Travel Policy
+Application & Claims Forms
+Kinsella Clarke
+Malvern Lodge Holiday Lets
+Money Guided
+Charitable Trust
+How We Raise Funds
+How We Help
+Who We’ve Helped
+Monthly Lottery Draw Application
+Charitable Trust Application Form
+Christmas Hampers
+Annual Charity Dinner
+Donations and Legacies
+Get Advice
+Criminal Injuries Compensation Authority
+Equality, Diversity & Inclusion
+FAQs
+Health & Safety
+Misconduct
+PFEW Maternity Guide
+Pensions & Injury Awards
+Sickness
+Offers & Discounts
+Motorfinity
+Motor Source Group
+Police Insure
+Police Mutual
+Vertu Motors
+W Web Design & Hosting
+Service Providers
+Carpenters Group
+Chesterton Grant
+DGM Solicitors
+Gorvins Solicitors
+Harvey Howell Solicitors
+Lund Bennett
+Police Treatment Centres
+Ralli Solicitors
+Reflect Financial
+Serve & Protect
+The Ben Fund
+The Police Children’s Charity
+Slater and Gordon
+National Police Healthcare Scheme
+Wilson Grange Mortgages
+Holiday Lets
+Home
+Merseyside Police Federation
+Our Workplace Reps
+Our Workplace Reps
 Under Maintenance
 This page is currently being worked on.
 
@@ -426,94 +426,13 @@ Source: https://merpolfed.org.uk/group-insurance/group-insurance-policy-document
 - Personal Accident Policy – 1st May 2026
 - Vehicle Breakdown Policy – 1st May 2026
 
-### Application & Claims Forms
-
-Source: https://merpolfed.org.uk/group-insurance/application-claims-forms/
-
-#### Application & Claims Forms
-
-Malvern House Group Insurance Policies can be found here
-
-To keep you up to date with current issues within the Federation and the wider police family, we will provide news items, circulars and information on current issues on a regular basis. Our updates section is designed to give you quick responses when a news item comes to our attention. Please check the publications section regularly.
-
-**For cancellation of your Group Insurance Membership, this MUST be submitted with signature.**
-
-
-##### Prior To Application
-
-When applying for Group Insurance or when downloading ANY Group Insurance claim forms please read this Privacy Notice prior to application
-
-##### Application to join Malvern House Group Insurance:
-
-###### Serving Officer Forms
-
-- Application to join
-- Standard Health Declaration
-- Full Health Declaration (Only to be completed if/partner cannot comply with the standard declaration)
-
-###### Police Staff Forms
-
-- Application to join Police Staff
-- Standard Health Declaration
-- Full Health Declaration (Only to be completed if/partner cannot comply with the standard declaration)
-
-##### Claims Forms
-
-- Accidental Burns Benefit Claim Form – from 1st May 2026
-- Court Compensation Claim Form – from 1st May 2026
-- Critical Illness Claim Form – from 1st May 2026
-- Emergency Dental Treatment Claim Form – from 1st May 2026
-- Hospitalisation Benefit Claim Form – from 1st May 2026
-- Initial Sick Pay Benefit Form – from 1st May 2026
-- On Duty Assault Benefit Claim Form – from 1st May 2026
-- Personal Accident Claim Form – from 1st May 2026
-- Police Treatment Centre Benefit Claim Form – from 1st May 2026
-- Unsociable Hours Benefit Claim Form – from 1st May 2026
-
-##### Beneficiary Nomination Form
-
-Please download the attached form:
-
-
-Download Beneficiary Nomination Form
-
-
-##### Specials Core Group Insurance Scheme
-
-This scheme is open to Special officers, who have opted to join the Federation. The cover includes:
-
--
--
-- Worldwide Travel Cover
-- GP 24 Service
-- Health Hero Assistance
-- Motor Breakdown Cover
-- Mobile Phone Cover
-- Legal Expenses
-- Some of this cover will extend to cover your co-habiting partner and family.
-
-
--
-
-Please refer to the application form for further details on the benefits and the cost.
-
-To apply, simply complete the form and return to the e mail address on the form.
-
-##### Supplementary Life & Critical Illness Cover
-
-For Serving officers and Police Staff who currently subscribe to the Group Insurance, there is the option to apply for supplementary life and critical illness cover. If you insure your spouse/co-habiting partner, you can also apply for cover for them too.
-
-Please refer to the application form for levels of cover and costs.
-
-To apply, simply complete the form and return to the e mail address on the form.
-
 ### Malvern Lodge Holiday Lets
 
 Source: https://merpolfed.org.uk/group-insurance/malvern-lodge-holiday-lets/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -686,6 +605,90 @@ Good luck!
 Malvern House Group Insurance Trustees are excited to include the Money Guided app in your scheme for 2026.
 
 Please scan the QR code to start your journey to support with your finances and great saving on your everyday spend.
+
+### Application & Claims Forms
+
+Source: https://merpolfed.org.uk/group-insurance/application-claims-forms/
+
+#### Application & Claims Forms
+
+Malvern House Group Insurance Policies can be found here
+
+To keep you up to date with current issues within the Federation and the wider police family, we will provide news items, circulars and information on current issues on a regular basis. Our updates section is designed to give you quick responses when a news item comes to our attention. Please check the publications section regularly.
+
+**For cancellation of your Group Insurance Membership, this MUST be submitted with signature.**
+
+
+##### Prior To Application
+
+When applying for Group Insurance or when downloading ANY Group Insurance claim forms please read this Privacy Notice prior to application
+
+##### Application to join Malvern House Group Insurance:
+
+###### Serving Officer Forms
+
+- Application to join
+- Standard Health Declaration
+- Full Health Declaration (Only to be completed if Member/Partner cannot comply with the standard health declaration)
+
+###### Police Staff Forms
+
+- Application to join Police Staff
+- Standard Health Declaration
+- Full Health Declaration (Only to be completed if Member/Partner cannot comply with the standard health declaration)
+
+##### Claims Forms
+
+- Accidental Burns Benefit Claim Form – from 1st May 2026
+- Court Compensation Claim Form – from 1st May 2026
+- Critical Illness Claim Form – from 1st May 2026
+- Emergency Dental Treatment Claim Form – from 1st May 2026
+- Hospitalisation Benefit Claim Form – from 1st May 2026
+- Initial Sick Pay Benefit Form – from 1st May 2026
+- On Duty Assault Benefit Claim Form – from 1st May 2026
+- Personal Accident Claim Form – from 1st May 2026
+- Police Treatment Centre Benefit Claim Form – from 1st May 2026
+- Unsociable Hours Benefit Claim Form – from 1st May 2026
+
+##### Beneficiary Nomination Form
+
+Please download the attached form:
+
+
+Download Beneficiary Nomination Form
+
+
+##### Specials Core Group Insurance Scheme
+
+This scheme is open to Special officers, who have opted to join the Federation. The cover includes:
+
+-
+-
+- Worldwide Travel Cover
+- GP 24 Service
+- Health Hero Assistance
+- Motor Breakdown Cover
+- Mobile Phone Cover
+- Legal Expenses
+- Some of this cover will extend to cover your co-habiting partner and family.
+
+
+-
+
+Please refer to the application form for further details on the benefits and the cost.
+
+To apply, simply complete the form and return to the e mail address on the form.
+
+##### Supplementary Life & Critical Illness Cover
+
+- Application to join – Standard Health Declaration
+- Full Declaration (Only to be completed if cannot comply with the standard one)
+
+For Serving officers and Police Staff who currently subscribe to the Group Insurance, there is the option to apply for supplementary life and critical illness cover. If you insure your spouse/co-habiting partner, you can also apply for cover for them too.
+
+Please refer to the application form for levels of cover and costs.
+
+To apply, simply complete the form and return to the e mail address on the form.
 
 ### Scheme Benefits Booklet (PDF)
 
@@ -8427,7 +8430,7 @@ Please return this completed form to:
 Office Manager, Merseyside Police, Federation Office, Malvern House, 13 Green Lane, Tuebrook, Liverpool, L13 7DT
 2
 
-### Full Health Declaration (Only to be completed if/partner cannot comply with the standard declaration) (PDF)
+### Full Health Declaration (Only to be completed if Member/Partner cannot comply with the standard health declaration) (PDF)
 
 Source: https://merpolfed.org.uk/wp-content/uploads/2026/05/Malvern-House-Full-health-declaration-from-1st-May-2026.pdf
 
@@ -9702,17 +9705,16 @@ entitled to a full and immediate refund of the amount paid from your bank or bui
 also notify us.
 3
 
-### Download PDF (PDF)
+### Application to join – Standard Health Declaration (PDF)
 
-Source: https://merpolfed.org.uk/wp-content/uploads/2025/03/supplementary_standard_health_declaration25.pdf
+Source: https://merpolfed.org.uk/wp-content/uploads/2026/08/PW-Supplementary-Health-Declaration-Aug-26.pdf
 
-Supplementary Insurance Application
-Form
+Supplementary Insurance
+Application Form
 Please refer to the scheme summary for full details of the cover available
 under the scheme.
-You must be a subscribing member of the Police Federation to be eligible to join this scheme.
 Cover is only available to members of an existing Group Insurance Scheme.
-Cover is available to age 70 or the serving members retirement date, whichever is earlier.
+Life Cover is available to age 70. Critical Illness Cover is available to age 65.
 Please ensure you have reviewed and can agree to the declarations overleaf before completing this form.
 Please Note: Our Privacy Notice can be viewed on our website at www.philipwilliams.co.uk.
 A hard copy can be provided upon request.
@@ -9720,7 +9722,7 @@ Please tick this box to confirm that you are eligible for this scheme and have r
 Details of the person to be covered:
 Serving Officer Police Staff Partner of Partner of
 Serving Officer Police Staff
-Police Federation: ________________________________________________
+Police Force: _____________________________________________________
 Employer name: __________________________________________________
 (If different)
 Serving Member Details
@@ -9736,18 +9738,20 @@ Collar No.:
 Top Up Cover Required: -
 (tick options required)
 Additional Life Cover Required – Serving member £50,000 (£5.00 per month)
+£75,000 (£6.75 per month)
 £100,000 (£8.00 per month)
 Additional Critical Illness Cover Required – Serving member £25,000 (£9.00 per month)
 £50,000 (£15.00 per month)
 Additional Life Cover Required – Partner £50,000 (£5.00 per month)
+£75,000 (£6.75 per month)
 £100,000 (£8.00 per month)
 Additional Critical Illness Cover Required – Partner £25,000 (£9.00 per month)
 £50,000 (£15.00 per month)
-The covered critical illness are (subject to policy terms & conditions) :- • Alzheimer’s Disease • Aorta Surgery • Bacterial
-Meningitis • Benign Brain Tumour • Cancer • CJD • Coma • Coronary Artery (By-Pass) Surgery • Heart Attack • Heart Valve
-Replacement/Repair • H.I.V. and Hepatitis B Virus (Contracted in a documented duty related situation) • Total Loss of Hearing • Total
-Loss of Sight • Total Loss of Speech • Total Loss of Hands or Feet • Major Organ Transplant • Motor Neurone Disease • Multiple Sclerosis
-• Parkinson’s Disease • Paralysis • Irreversible Renal Failure • Severe Burns • Stroke • Traumatic Head Injury
+The covered critical illness are (subject to policy terms & conditions) :- • Alzheimer’s Disease • Aorta Surgery • Bacterial Meningitis •
+Benign Brain Tumour • Cancer • CJD • Coma • Coronary Artery (By-Pass) Surgery • Heart Attack • Heart Valve Replacement/Repair • H.I.V. and
+Hepatitis B Virus (Contracted in a documented duty related situation) • Total Loss of Hearing • Total Loss of Sight • Total Loss of Speech • Total Loss of
+Hands or Feet • Major Organ Transplant • Motor Neurone Disease • Multiple Sclerosis • Parkinson’s Disease • Paralysis • Irreversible Renal Failure •
+Severe Burns • Stroke • Traumatic Head Injury
 1
 Beneficiary Nomination Details:
 As a member of the Federation Group Insurance Life scheme, please provide details of the person(s) that
@@ -9807,42 +9811,302 @@ Please return this completed form to:
 Philip Williams and Company, 35 Walton Road, Stockton Heath, Warrington, WA4 6NW
 or email: schemes@philipwilliams.co.uk
 3
-Instruction to your
-bank or building society
-to pay by Direct Debit
-Please fill in the whole form including official use box using a ball
-point pen and send it to: Service user number
-Philip Williams & Co 7 5 3 2 9 4
-35 Walton Road
-Stockton Heath
-Warrington
-WA4 6NW FOR PHILIP WILLIAMS (G INS) MANAGEMENT LTD OFFICIAL USE ONLY
-This is not part of the instruction to your bank or building society.
-Name(s) of account holder(s)
-Bank/building society account number
-Branch sort code Instruction to your bank or building society
-Please pay Philip Williams (G Ins) Management Ltd Direct Debits from
-the account detailed in this Instruction subject to the safeguards assured
-by the Direct Debit Guarantee. I understand that this Instruction may
-Name and full postal address of your bank or building society remain with Philip Williams (G Ins) Management Ltd and, if so, details
-To: The Manager Bank/building society will be passed electronically to my bank/building society.
-Address Signature(s)
-Postcode Date
-Reference
-Banks and building societies may not accept Direct Debit Instructions for some types of account
-This guarantee should be detached and retained by the payer.
-The Direct Debit
-Guarantee
- This Guarantee is offered by all banks and building societies that accept instructions to pay Direct Debits
- If there are any changes to the amount, date or frequency of your Direct Debit Philip Williams (G Ins) Management Ltd will notify you 10
-working days in advance of your account being debited or as otherwise agreed. If you request Philip Williams (G Ins) Management Ltd to
-collect a payment, confirmation of the amount and date will be given to you at the time of the request.
- If an error is made in the payment of your Direct Debit, by Philip Williams (G Ins) Management Ltd or your bank or building society, you are
-entitled to a full and immediate refund of the amount paid from your bank or building society
-– If you receive a refund you are not entitled to, you must pay it back when Philip Williams (G Ins) Management Ltd asks you to
- You can cance l a Direct Debit at any time by simply contacting your bank or building society. Written confirmation may be required. Please
-also notify us.
 4
+
+### Full Declaration (Only to be completed if cannot comply with the standard one) (PDF)
+
+Source: https://merpolfed.org.uk/wp-content/uploads/2026/08/PW-Supplementary-UW-Application-Form-Aug-26.pdf
+
+Supplementary
+Insurance Scheme
+Please refer to the scheme summary for full details of the cover available under the scheme.
+Cover is only available to members of an existing Group Insurance Scheme.
+A separate application form needs to be completed if you wish to take out cover for your spouse or partner.
+All applications will be subject to medical underwriting.
+Cover is payable by direct debit and will only commence following acceptance from the underwriters.
+Life Cover is available to age 70. Critical Illness Cover is available to age 65.
+Please Note: Our Privacy Notice can be viewed on our website at www.philipwilliams.co.uk
+A hard copy can be provided upon request.
+QUESTIONS TO BE ANSWERED BY THE PERSON WHOSE LIFE IS PROPOSED TO BE INSURED
+Before any question is answered, please read carefully the Declaration at the end of this form, which must be signed and dated.
+Please ensure that all answers are complete and correct. Any question left unanswered or only answered with a dash will delay
+the assessment of this Proposal for assurance.
+If you require additional space for any answers please use the further information section at the end of this form.
+Please tick this box to confirm that you are eligible for this scheme and have read the above terms
+Section 1: Details of the person to be covered:
+Serving Officer Police Staff Partner of Partner of
+Serving Officer Police Staff
+Police Force: ______________________________________________________________
+Employer name (If different): __________________________________________________
+Serving Members Serving Members
+Name Collar/Payroll Number
+Serving Members Serving Members
+Date of Birth Email
+Applicant Details: -
+Title (Mr., Mrs.,
+Miss, other) Surname Forenames
+Address
+Postcode Contact telephone number
+Email Date Member
+joined Force
+Date of birth Sex (M, F) Marital status
+Normal Country of
+Nationality Residence
+2
+Top Up Cover Required: -
+(tick options required)
+Additional Life Cover Required – Serving member £50,000 (£5.00 per month)
+£75,000 (£6.75 per month)
+£100,000 (£8.00 per month)
+Additional Critical Illness Cover Required – Serving member £25,000 (£9.00 per month)
+£50,000 (£15.00 per month)
+Additional Life Cover Required – Partner £50,000 (£5.00 per month)
+£75,000 (£6.75 per month)
+£100,000 (£8.00 per month)
+Additional Critical Illness Cover Required – Partner £25,000 (£9.00 per month)
+£50,000 (£15.00 per month)
+The covered critical illness are (subject to policy terms & conditions):-
+• Alzheimer’s Disease • Aorta Surgery • Bacterial Meningitis • Benign Brain Tumour • Cancer • CJD • Coma • Coronary Artery (By-Pass)
+Surgery • Heart Attack • Heart Valve Replacement/Repair • H.I.V. and Hepatitis B Virus (Contracted in a documented duty related
+situation) • Total Loss of Hearing • Total Loss of Sight • Total Loss of Speech • Total Loss of Hands or Feet • Major Organ Transplant •
+Motor Neurone Disease • Multiple Sclerosis • Parkinson’s Disease • Paralysis • Irreversible Renal Failure • Severe Burns • Stroke •
+Traumatic Head Injury
+Beneficiary Nomination Details: (continue on separate sheet if required)
+As a member of the Federation Group Insurance Life scheme, please provide details of the person(s) that you wish
+to receive the money in the event of your death. Scheme trustees are not bound to follow the nomination, but will
+consider it. It is your responsibility to ensure that in the event of your circumstances or wishes changing you keep the
+information up to date.
+Name Date of Birth Relationship to member Percentage of Benefit
+/ /
+/ /
+/ /
+Section 2: G.P. details
+Name of doctor who currently holds your
+medical records
+Address and telephone number
+If you have changed doctors within the last 3
+months, please give the name, address and
+telephone number of your previous doctor.
+3
+Section 3: Occupation
+Employer’s name:
+Nature of business or
+occupation in which you are
+engaged (if more than one,
+please state all):
+Do your duties involve you in any way (other than Yes No If yes, please give full details
+clerical) with:
+1) the licenced trade or entertainment
+industry?
+2) working at heights, offshore, aviation
+(other than on scheduled flights), diving, or
+the fishing or mining industries, work
+requiring special safety precautions or any
+other activity which may be regarded as
+hazardous?
+Does your job require a licence, e.g. driving?
+Section 4: Smoking and alcohol details
+Yes No If yes, please state average consumption per week
+Have you smoked or used any form of tobacco or
+nicotine product within the last 12 months?
+Do you drink alcohol?
+(if yes please state your average weekly
+consumption in units.(one unit is a pub measure
+of wine or spirits or a half a pint of beer, lager or
+cider)
+4
+Section 5: Personal medical details
+Height Weight
+Yes No If yes please provide details, including name of doctor or hospital,
+dates, duration, test results etc.
+1) Has your weight changed
+recently?
+2) Have you consulted any doctor,
+hospital or clinic within the last 5
+years?
+3) Are you currently receiving any
+medical treatment?
+4) Are you taking any medicine or
+drugs, whether or not prescribed
+by a medical practitioner?
+5) Are you due to have any check-up
+in the next 12 months in
+connection with any medical
+condition, or are you waiting for
+the results of any medical
+inspection?
+6) Have you ever suffered from:
+(a) any chest or lung disorder?
+(b) anxiety, stress, depression or
+other mental or nervous
+disorder?
+(c) back problems, arthritis, bone
+joint, muscle or limb
+conditions?
+(d) asthma bronchitis or other
+respiratory disorders?
+(e) any stomach, bowel complaint,
+liver disorder(including bladder
+disease, gastric or duodenal,
+Colitis or Crohn’s disease)
+(f) diabetes, gout, kidney, liver,
+prostate or bladder problem?
+(g) heart attack, angina or heart
+disease?
+(h) high blood pressure, raised
+cholesterol, stroke circulatory
+problems, brain haemorrhage
+or permanent brain injury?
+(i) cancer, tumour or gout?
+5
+Yes No If yes please provide details, including name of doctor or hospital,
+dates, duration, test results etc.
+(j) Multiple sclerosis, Parkinson’s
+disease, paralysis, epilepsy,
+Alzheimer’s disease, dementia
+or cerebral palsy?
+(k) eye, ear nose or throat
+conditions, skin or allergic
+conditions?
+(l) any operation, X-rays or special
+investigations?
+7) Have you had any numbness,
+dizziness or any disease or disorder
+affecting your balance or your eyes
+or vision (not corrected by spectacle
+or lenses)?
+8) Do you anticipate travel outside
+your normal country of residence,
+Western Europe, North America or
+Australasia? (other than for holiday)
+9) Within the last 10 years, have you
+lived for longer than 1 month in any
+country outside your normal country
+of residence, Western Europe, North
+America or Australasia?
+10) Do you engage in hazardous
+sports, such as aviation, motor
+sports, diving, etc.?
+11) Have either of your parents or If yes please provide details including relationship and age at time,
+any brothers or sisters died from and state if death resulted.
+or suffered from heart disease,
+stroke, diabetes, cancer, a nervous
+disorder or any hereditary disease
+or disorder before the age of 65?
+12) Has any application for If yes please give details of companies and dates.
+assurance on your life been
+postponed, declined, withdrawn
+by yourself or accepted at special
+terms?
+13) Have you ever tested positive for If yes please give details including dates - for confidentiality these
+HIV/AIDS, hepatitis B or C or are may be sent direct to the Chief Medical Officer.
+you awaiting the results of such a
+test?
+14) Within the last 5 years have you If yes please give details including dates - for confidentiality these
+been exposed to the risk of HIV may be sent direct to the Chief Medical Officer.
+infection? (Note: this can be caught
+through unsafe sex, intravenous (IV)
+drug abuse, blood transfusions or
+surgery undertaken outside the EU.)
+15) Within the last 5 years have you If yes please give details including dates - for confidentiality these
+tested positive or been treated may be sent direct to the Chief Medical Officer.
+for any sexual transmitted
+disease?
+16) Are you using or have you ever
+used drugs other than those
+Prescribed by a doctor or obtained
+over the counter from a pharmacy?
+i.e. recreational drugs such as
+Ecstasy, cocaine, heroin, etc.
+6
+Section 6: Additional Information
+Question: Additional Information
+SECTION 7: IMPORTANT NOTES
+ Please note that your answers to the questions on this form will be used to assess the risk involved in providing you with the
+proposed level of cover. If you are unsure whether a particular fact is important you should disclose it.
+ Cover will not start until we have assessed and accepted your answers given in this form.
+ We may ask you to contact your doctor to speed up the completion of reports that we have requested.
+ If we ask you to attend a medical examination, it will be necessary for us to share your application information with another company
+authorised by us. They will make the arrangements for the examination to take place.
+ On occasion the faxing of medical reports may help to ensure a speedier assessment of your medical assessment. We only accept
+faxed information direct to a fax machine in a secure part of our building. This ensures that we maintain strict confidentiality. If you
+do not agree to allow the faxing of information, please indicate by deleting the appropriate section in this form.
+ All insurers have a confidentiality practice in place which means that your medical information is held securely and access is limited
+to authorised individuals who need to see it.
+ You must inform us of any changes in your health or other circumstances during the period between this form being completed and
+in us notifying the terms on which cover will be offered.
+DATA PROTECTION ACT 1998:
+I understand and consent to the use of any information provided by us for the operation of this insurance. This includes the process of
+underwriting, administration, claims management, rehabilitation and handling customer concerns.
+I understand that in order to do this the information may be shared with other insurers, re-insurers, insurance intermediaries and service
+and service providers who are involved in either the operation of insurance which covers employees or the employee benefits
+arrangements provided by the company.
+I understand the data will be processed fairly and securely in accordance with the Data Protection Act 1998 and the details will be stored
+on computer but will not be kept for longer than necessary.
+I confirm that data in relation to this insurance has been obtained and passed to insurers in accordance with the requirements of the
+Data Protection Act 1998.
+STATEMENT OF PRACTICE ON GENETICS
+In accordance with the Association of British Insurer’s (‘ABI’) policy on genetics and insurance, you do not need to tell us about any
+genetic test you have had if the proposed level of cover, taken together with any other insurance cover you already have, total:
+ £500,000 or less for life assurance.
+ £300,000 or less for critical illness or income protection.
+Above these limits, you may need to tell us about certain genetic test results when applying for certain types of insurance. We will only
+be interested in genetic test results which have been approved by the Government’s Genetic and Insurance Committee for insurers’ use.
+If you think this may apply to you, please ask us for details of the current position. These details are also available from the ABI website
+at www.abi.org.uk
+However you must tell us if you either have family history of, are experiencing symptoms of, or are having treatment for, a medical
+condition including any genetically inherited condition.
+7
+SECTION 8: ACCESS TO MEDICAL REPORTS
+It may be necessary for us to obtain medical reports to support your application for cover. Before we can ask any doctor that you have consulted to
+complete a report, we need your permission under the Access to Medical Reports Act 1988. Your rights under the Act are as follows:
+ You do not have to give your consent, but if you do not we may be unable to proceed.
+ You can ask to see the report before the doctor returns it to us. If you do, we shall tell the doctor to retain the report for 21 days so that you can
+arrange to see it. If you have not made arrangements to see the report within this time, your doctor will send the report to us.
+ If you choose not to see the report at this stage, you may ask the doctor for a copy within 6 months of it being sent to us. A duplicate report can be
+sent to your doctor on request should you wish to see it at a later date.
+ If you consider any aspect of the report to be incorrect or misleading, you may ask the doctor to amend it. If your doctor refuses to make the
+amendments, you may ask him/her to attach a statement outlining your views, which will then accompany the report.
+ Your doctor can withhold access to the report if he/she feels that it would cause physical or mental harm to you or others.
+ Your medical report will contain details of relevant consultations, treatment, operations, investigations and test results that you have undergone at
+any surgery, hospital or clinic. Your consent will give the insurers access to this information.
+ If you have any questions regarding your rights under the Act or any questions relating to the process of obtaining, assessing or storing medical
+information, please write to the Compliance Officer at our Head Office.
+ I do not* wish to see the report before it is sent to the insurers. (*Only delete the word “not” if you wish to see the report before it is sent.)
+SECTION 9: DECLARATION
+Please sign this Personal Declaration once you have read it together with all of the sections. If you are unsure as to whether any information should be
+given, you should provide it. If you are applying for insurance with other companies at the same time, by signing the form you are consenting to copies of
+medical reports being sent to these other companies at their request. However, if we are approached by another company to provide copies of highly
+sensitive information we shall ask for your specific written permission before doing so.
+ I will inform you immediately of any changes that occur before I am notified of the terms on which cover will be offered. I understand that failure
+to do so may result in the loss or cancellation of the cover being assessed.
+ To the best of my knowledge and belief all the statements made, which includes anything I may have said, have been recorded accurately in this
+form or are attached in a sealed Private and Confidential envelope, and are true and complete.
+ Please tick if you have attached a Private and Confidential envelope.
+ I agree to the insurers obtaining medical information from any doctor whom I have consulted about my physical or mental health, in order to assess
+my application. You may obtain relevant information from other insurers about previous or concurrent applications for life, critical illness, sickness,
+disability, accident or private medical insurance that I have applied for. I authorize those asked for such information to provide it on the production
+of a copy of this consent. This consent allows the insurers to obtain medical reports at any time during the period of the cover or after my death to
+support any claim made on the cover proceeds.
+ This information can also be used to maintain management information for business analysis.
+ I agree that a copy of the agreement given in this Declaration will have the validity of the original.
+ I agree to the insurers accepting medical reports faxed directly to the company from my doctor’s surgery. I also do not* object to copies of the
+report being faxed to any other company that I have applied to at their request. (*Delete the word “not” if you do not wish us to fax information.)
+By signing this form I am allowing the insurers to carry out my risk assessment using the information that I have provided. This information
+can also be used to process any claim made in respect of me on this policy.
+ I confirm that I have read the summary of cover and am aware of the cover afforded under this scheme.
+ I consent to the information on this form being stored / processed electronically.
+ I understand that if my payments stop, all cover under the scheme will cease.
+ I will be notified when cover and payments will start and am aware that there is no cover prior to this date.
+ I confirm that if I am applying for cover for my partner that the person meets the following criteria;
+ You are co-habiting
+ They are financially interdependent
+ I understand that it is my responsibility that in the event of my circumstances or wishes changing that I keep my
+information up to date.
+LIFE TO BE ASSURED:
+Signature Date
+8
+9
 
 ## Charitable Trust
 
@@ -10034,7 +10298,7 @@ Source: https://merpolfed.org.uk/charitable-trust/donations-and-legacies/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -10107,7 +10371,7 @@ Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-awards/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -10178,7 +10442,7 @@ Loading…
 
 Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-lottery/
 
-90 Days Notice Calculator: Fri, 30 October 2026
+90 Days Notice Calculator: Mon, 30 November 2026
 
 Join the Merseyside Police Federation monthly charity lottery. All proceeds support the Charitable Trust.
 
@@ -12802,34 +13066,6 @@ As part of the Merseyside Police Federation’s Affinity Program, serving member
 
 The New Peugeot 3008 offers a blend of innovative design, advanced technology, and versatile powertrain options, making it an ideal choice for modern drivers. Available in Allure and GT trims with electric, plug-in hybrid, and hybrid variants, it features the signature PEUGEOT i-Cockpit with a 21-inch panoramic curved display, enhanced connectivity, and driver assistance systems for superior safety and convenience. With efficient electric ranges up to 435 miles, practical storage solutions, and premium interior finishes, the 3008 delivers a refined driving experience. Prices start from £34,650 on the road, effective from 1 May 2025, with various options for customisation including colours like Obsession Blue and Nera Black. For full specifications, pricing details, and technical information, view the embedded PDF guide below.
 
-### Motorfinity
-
-Source: https://merpolfed.org.uk/offers-discounts/motorfinity/
-
-#### Motorfinity
-
-##### Act Fast: Huge Discounts on Cars in Stock Now!
-
-Ready for your next car? Looking for incredible savings and lightning-fast delivery?
-
-Motorfinity has exclusive offers on in-stock vehicles, designed for those who need great deals and fast solutions. What’s waiting for you?
-
-- Massive savings on top manufacturers – drive your dream car for less
-- Quick delivery – your new car could be on your doorstep within 2 weeks
-- Exclusive discounts for NHS workers, Emergency Services, Armed Forces, Teachers & more
-
-Don’t wait! These limited-time deals are on a first come, first served basis and won’t last long.
-
-Browse now and claim your next car before it’s gone: https://motorfinity.uk/merpolfed
-
-Motorfinity offer fantastic deals across all makes and models, flexible finance options, and a hassle-free part-exchange service.
-
-Contact us today to secure your deal!
-
-Call 01636 558 885 and enquires with our friendly team today.
-
-#### CarDeals #ExclusiveSavings #QuickDelivery #Motorfinity #DriveYourDream
-
 ### Offers & Discounts
 
 Source: https://merpolfed.org.uk/offers-discounts/
@@ -12868,7 +13104,7 @@ Source: https://merpolfed.org.uk/offers-discounts/police-insure/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -12950,18 +13186,6 @@ W Web Design & Hosting provides fast, secure and fully managed website hosting f
 
 Whether you need hosting for an existing site or a new website built from scratch, we are here to help. Get in touch and quote your federation membership to claim your discount.
 
-### Motor Source Group
-
-Source: https://merpolfed.org.uk/offers-discounts/motor-source-group/
-
-#### Motor Source Group
-
-Allied to a 5-Star service, Motor Source Group offer a specialist new car service for all serving and ex-Police and are committed to listening to your needs and sourcing the right car for you. You’ve taken care of our community, now let us take care of you! You can take advantage of great savings across a wide range of makes and models including:
-
-
-
-Motor Source Group is an approved partner of the Federation of England and Wales and has great customer feedback, which you can read on the independent review site, Trust Pilot.
-
 ### Police Mutual
 
 Source: https://merpolfed.org.uk/offers-discounts/police-mutual/
@@ -12991,6 +13215,46 @@ The latest Let’s Talk Money guides for July 2026 — find more on the Let’s 
 To mark nearly 160 years of being there for the Police family, Police Mutual are running a free prize draw — ten lucky winners will each be awarded £160. It is open to serving and retired police officers, serving and retired police staff, PCSOs, special constables and their families. Sharing your connection to policing is optional.
 
 Enter by **30 September 2026** at policemutual.co.uk/160prizedraw. Terms and conditions apply.
+
+### Motor Source Group
+
+Source: https://merpolfed.org.uk/offers-discounts/motor-source-group/
+
+#### Motor Source Group
+
+Allied to a 5-Star service, Motor Source Group offer a specialist new car service for all serving and ex-Police and are committed to listening to your needs and sourcing the right car for you. You’ve taken care of our community, now let us take care of you! You can take advantage of great savings across a wide range of makes and models including:
+
+
+
+Motor Source Group is an approved partner of the Federation of England and Wales and has great customer feedback, which you can read on the independent review site, Trust Pilot.
+
+### Motorfinity
+
+Source: https://merpolfed.org.uk/offers-discounts/motorfinity/
+
+#### Motorfinity
+
+##### Act Fast: Huge Discounts on Cars in Stock Now!
+
+Ready for your next car? Looking for incredible savings and lightning-fast delivery?
+
+Motorfinity has exclusive offers on in-stock vehicles, designed for those who need great deals and fast solutions. What’s waiting for you?
+
+- Massive savings on top manufacturers – drive your dream car for less
+- Quick delivery – your new car could be on your doorstep within 2 weeks
+- Exclusive discounts for NHS workers, Emergency Services, Armed Forces, Teachers & more
+
+Don’t wait! These limited-time deals are on a first come, first served basis and won’t last long.
+
+Browse now and claim your next car before it’s gone: https://motorfinity.uk/merpolfed
+
+Motorfinity offer fantastic deals across all makes and models, flexible finance options, and a hassle-free part-exchange service.
+
+Contact us today to secure your deal!
+
+Call 01636 558 885 and enquires with our friendly team today.
+
+#### CarDeals #ExclusiveSavings #QuickDelivery #Motorfinity #DriveYourDream
 
 ### 0525 Peugeot 3008 Price And Spec Guide Myc0 C2 Version 2.4 Effective From 1St May 2025 (PDF)
 
@@ -14218,7 +14482,7 @@ Source: https://merpolfed.org.uk/services/harvey-howell-solicitors/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -14474,7 +14738,7 @@ Source: https://merpolfed.org.uk/services/wilson-grange-mortgages/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -14812,7 +15076,7 @@ Source: https://merpolfed.org.uk/forms/2027-charity-ball/
 
 Skip to content
 90 Days Notice Calculator:
-Fri, 30 October 2026
+Mon, 30 November 2026
 The Hub (For Reps)
 National Website
 Search
@@ -15088,7 +15352,7 @@ Find out about our commitment to publishing in Welsh. Our Personal information c
 
 Source: https://www.polfed.org/
 
-First cohort reaches halfway milestone in pioneering Open University programme The programme for reps helps ensure members receive high-quality, consistent and evidence-based support. 30 July 2026 Thin blue line gets thinner as officer numbers continue to fall New data reveals almost 25,000 police officers have resigned from the service since 2021, wiping out the equivalent of the Government's entire 20,000-officer uplift. 22 July 2026 Police Federation: Policing plunged in to further crisis as Government ignores recommendations of its own pay review body Government ignores independent pay recommendation and confirms 3.5% award 16 July 2026 Officers who faced armed Hainault attacker win overall Police Federation Bravery Award 9 July 2026 Police leader transforms personal tragedy into support for children with cancer Superintendent Lorraine Cuthbertson of Northumbria Police presented with Inspiration in Policing Award. 9 July 2026 Heart of Policing Award goes to Dorset PCs for compassionate railway rescue The pair spent more than 10 minutes holding a distressed man suspended above railway tracks, an act of bravery and determination that ultimately saved his life. 9 July 2026 POLICE mag View the latest editions of the national magazine Member Value Report How the Police Federation helps you Pensions FAQs Common questions about the police pension scheme Quick Reference Guide for police officers A basic summary of your main terms and conditions
+Response to decision excluding PC Andrew Harper’s killers from early release scheme 30 August 2026 Stop turning police pursuits into social media entertainment Acting Deputy National Chair Paul Williams calls on social media companies to take responsibility for content that glorifies dangerous driving and targets police officers for online engagement. 26 August 2026 A million voices for Andrew As a Change.org petition crosses one million signatures, police officers, families and members of the public have united behind a campaign to prevent the early release of the cop killers 26 August 2026 Federation leads national debate on social media's role in dangerous behaviour Police Federation calls for stronger regulation, tougher enforcement and greater responsibility from technology companies whose algorithms amplify harmful content. 25 August 2026 Riders honour fallen colleagues in a sun‑filled 2026 Unity Tour 25 August 2026 Federation responds to Leadership Commission report The Leadership Commission demonstrates what can be achieved if our members are listened to. 25 August 2026 POLICE mag View the latest editions of the national magazine Member Value Report How the Police Federation helps you Pensions FAQs Common questions about the police pension scheme Quick Reference Guide for police officers A basic summary of your main terms and conditions
 
 ### Police Pension Scheme 1987 In England And Wales
 
