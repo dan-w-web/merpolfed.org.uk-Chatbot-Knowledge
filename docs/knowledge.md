@@ -1,6 +1,6 @@
 # Merseyside Police Federation - Chatbot Knowledge Base
 
-_Last updated: 01 September 2026_
+_Last updated: 01 October 2026_
 
 _Source: https://merpolfed.org.uk_
 
@@ -35,8 +35,8 @@ Supporting the officers that support you
 
 Your Group Insurance Details Can Be Found Here
 
-View Group Insurance- 1st Prize of £750 PC 4022 Patricia McLeod
-- 2nd Prize of £500 Pens Jon Ward
+View Group Insurance- 1st Prize of £750 PC 1627 Kirsty Lawrence
+- 2nd Prize of £500 Pens Norman Edge
 
 Following another glittering night at Crowne Plaza Liverpool, with over 350 guests in attendance, we are pleased to announce the two charities we supported — the Bobby Colleran Trust and Aftermath Support — will each receive seventeen thousand pounds towards their work.
 
@@ -196,86 +196,13 @@ Mather Ave/Trainer |
 07702 934648 |
 BarryA@merseyside.polfed.org |
 
-### Our Full-Time Reps
-
-Source: https://merpolfed.org.uk/merseyside-police-federation/our-full-time-reps/
-
-Skip to content
-90 Days Notice Calculator:
-Mon, 30 November 2026
-The Hub (For Reps)
-National Website
-Search
-Quick Ref Guide
-Home
-What We Do
-Contact Us
-Our Facilities
-Who’s Who
-Group Insurance
-Policy Documents
-Scheme Benefits Booklet
-Travel Policy
-Application & Claims Forms
-Kinsella Clarke
-Malvern Lodge Holiday Lets
-Money Guided
-Charitable Trust
-How We Raise Funds
-How We Help
-Who We’ve Helped
-Monthly Lottery Draw Application
-Charitable Trust Application Form
-Christmas Hampers
-Annual Charity Dinner
-Donations and Legacies
-Get Advice
-Criminal Injuries Compensation Authority
-Equality, Diversity & Inclusion
-FAQs
-Health & Safety
-Misconduct
-PFEW Maternity Guide
-Pensions & Injury Awards
-Sickness
-Offers & Discounts
-Motorfinity
-Motor Source Group
-Police Insure
-Police Mutual
-Vertu Motors
-W Web Design & Hosting
-Service Providers
-Carpenters Group
-Chesterton Grant
-DGM Solicitors
-Gorvins Solicitors
-Harvey Howell Solicitors
-Lund Bennett
-Police Treatment Centres
-Ralli Solicitors
-Reflect Financial
-Serve & Protect
-The Ben Fund
-The Police Children’s Charity
-Slater and Gordon
-National Police Healthcare Scheme
-Wilson Grange Mortgages
-Holiday Lets
-Home
-Merseyside Police Federation
-Our Full-Time Reps
-Our Full-Time Reps
-Under Maintenance
-This page is currently being worked on.
-
 ### Our Workplace Reps
 
 Source: https://merpolfed.org.uk/merseyside-police-federation/our-workplace-reps/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -339,6 +266,79 @@ Home
 Merseyside Police Federation
 Our Workplace Reps
 Our Workplace Reps
+Under Maintenance
+This page is currently being worked on.
+
+### Our Full-Time Reps
+
+Source: https://merpolfed.org.uk/merseyside-police-federation/our-full-time-reps/
+
+Skip to content
+90 Days Notice Calculator:
+Wed, 30 December 2026
+The Hub (For Reps)
+National Website
+Search
+Quick Ref Guide
+Home
+What We Do
+Contact Us
+Our Facilities
+Who’s Who
+Group Insurance
+Policy Documents
+Scheme Benefits Booklet
+Travel Policy
+Application & Claims Forms
+Kinsella Clarke
+Malvern Lodge Holiday Lets
+Money Guided
+Charitable Trust
+How We Raise Funds
+How We Help
+Who We’ve Helped
+Monthly Lottery Draw Application
+Charitable Trust Application Form
+Christmas Hampers
+Annual Charity Dinner
+Donations and Legacies
+Get Advice
+Criminal Injuries Compensation Authority
+Equality, Diversity & Inclusion
+FAQs
+Health & Safety
+Misconduct
+PFEW Maternity Guide
+Pensions & Injury Awards
+Sickness
+Offers & Discounts
+Motorfinity
+Motor Source Group
+Police Insure
+Police Mutual
+Vertu Motors
+W Web Design & Hosting
+Service Providers
+Carpenters Group
+Chesterton Grant
+DGM Solicitors
+Gorvins Solicitors
+Harvey Howell Solicitors
+Lund Bennett
+Police Treatment Centres
+Ralli Solicitors
+Reflect Financial
+Serve & Protect
+The Ben Fund
+The Police Children’s Charity
+Slater and Gordon
+National Police Healthcare Scheme
+Wilson Grange Mortgages
+Holiday Lets
+Home
+Merseyside Police Federation
+Our Full-Time Reps
+Our Full-Time Reps
 Under Maintenance
 This page is currently being worked on.
 
@@ -432,7 +432,7 @@ Source: https://merpolfed.org.uk/group-insurance/malvern-lodge-holiday-lets/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -9602,7 +9602,7 @@ PWI3077.10 - 02/26 - V1
 
 ### Download Form (PDF)
 
-Source: https://merpolfed.org.uk/wp-content/uploads/2025/03/specials_core_app_24.pdf
+Source: https://merpolfed.org.uk/wp-content/uploads/2026/08/Specials-Core-Application-Sept-26.pdf
 
 Special Constable Insurance Scheme
 Non-Underwritten CORE Group
@@ -9625,16 +9625,17 @@ HealthHero Assist Family
 Motor Breakdown Cover (UK & Europe) Member & Partner
 Mobile Phone Cover Member & Partner
 Legal Expenses including ID Theft Protection Included
-GP 24 Family
-CALENDAR MONTHLY PREMIUM £18.95
+GP 24 inc Physio Family
+CALENDAR MONTHLY PREMIUM £20.25
 MEMBER BENEFITS AGE 70 TO 79**
 Worldwide Travel Policy Family
+(Europe only 75-79)
 HealthHero Assist Family
 Motor Breakdown Cover (UK & Europe) Member & Partner
 Mobile Phone Cover Member & Partner
 Legal Expenses including ID Theft Protection Included
-GP 24 Family
-CALENDAR MONTHLY PREMIUM £23.95
+GP 24 inc Physio Family
+CALENDAR MONTHLY PREMIUM £25.50
 1
 Your Details
 Mr  Mrs  Miss  Ms 
@@ -9668,41 +9669,6 @@ Stockton Heath
 Warrington
 WA4 6NW
 2
-Instruction to your
-bank or building society
-to pay by Direct Debit
-Please fill in the whole form including official use box using a ball
-point pen and send it to: Service user number
-Philip Williams & Co 7 5 3 2 9 4
-35 Walton Road
-Stockton Heath
-Warrington
-WA4 6NW FOR PHILIP WILLIAMS (G INS) MANAGEMENT LTD OFFICIAL USE ONLY
-This is not part of the instruction to your bank or building society.
-Name(s) of account holder(s)
-Bank/building society account number
-Branch sort code Instruction to your bank or building society
-Please pay Philip Williams (G Ins) Management Ltd Direct Debits from
-the account detailed in this Instruction subject to the safeguards assured
-by the Direct Debit Guarantee. I understand that this Instruction may
-Name and full postal address of your bank or building society remain with Philip Williams (G Ins) Management Ltd and, if so, details
-To: The Manager Bank/building society will be passed electronically to my bank/building society.
-Address Signature(s)
-Postcode Date
-Reference
-Banks and building societies may not accept Direct Debit Instructions for some types of account DDI1
-This guarantee should be detached and retained by the payer.
-The Direct Debit
-Guarantee
- This Guarantee is offered by all banks and building societies that accept instructions to pay Direct Debits
- If there are any changes to the amount, date or frequency of your Direct Debit Philip Williams (G Ins) Management Ltd will notify you 10
-working days in advance of your account being debited or as otherwise agreed. If you request Philip Williams (G Ins) Management Ltd to
-collect a payment, confirmation of the amount and date will be given to you at the time of the request.
- If an error is made in the payment of your Direct Debit, by Philip Williams (G Ins) Management Ltd or your bank or building society, you are
-entitled to a full and immediate refund of the amount paid from your bank or building society
-– If you receive a refund you are not entitled to, you must pay it back when Philip Williams (G Ins) Management Ltd asks you to
- You can cance l a Direct Debit at any time by simply contacting your bank or building society. Written confirmation may be required. Please
-also notify us.
 3
 
 ### Application to join – Standard Health Declaration (PDF)
@@ -10298,7 +10264,7 @@ Source: https://merpolfed.org.uk/charitable-trust/donations-and-legacies/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -10371,7 +10337,7 @@ Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-awards/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -10442,7 +10408,7 @@ Loading…
 
 Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-lottery/
 
-90 Days Notice Calculator: Mon, 30 November 2026
+90 Days Notice Calculator: Wed, 30 December 2026
 
 Join the Merseyside Police Federation monthly charity lottery. All proceeds support the Charitable Trust.
 
@@ -13104,7 +13070,7 @@ Source: https://merpolfed.org.uk/offers-discounts/police-insure/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -14482,7 +14448,7 @@ Source: https://merpolfed.org.uk/services/harvey-howell-solicitors/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -14738,7 +14704,7 @@ Source: https://merpolfed.org.uk/services/wilson-grange-mortgages/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -15030,7 +14996,13 @@ Source: https://merpolfed.org.uk/holiday-lets/
 
 #### Holiday Lets
 
-**Bookings for 2027 open in September 2026, exact date to be confirmed. Please do not call the office to book.**
+**Merseyside Police Federation 2027 Cottage and Lodge Bookings will be live for booking from**
+
+10.00 am Tuesday 8th September 2026
+
+10.00 am Tuesday 8th September 2026
+
+**Please do not call the office to book.**
 
 **Our T&C’s can be found here****https://www.merpolfedhols.org/enquire-and-stay#TandC****please read the full terms and note the following.****Please note we have a strict no pet no smoking policy in all of the holiday lets.****The member must be the lead party guest and in attendance during the stay, unfortunately the cottages cannot be booked for other people outside the organisation.**
 
@@ -15076,7 +15048,7 @@ Source: https://merpolfed.org.uk/forms/2027-charity-ball/
 
 Skip to content
 90 Days Notice Calculator:
-Mon, 30 November 2026
+Wed, 30 December 2026
 The Hub (For Reps)
 National Website
 Search
@@ -15352,7 +15324,7 @@ Find out about our commitment to publishing in Welsh. Our Personal information c
 
 Source: https://www.polfed.org/
 
-Response to decision excluding PC Andrew Harper’s killers from early release scheme 30 August 2026 Stop turning police pursuits into social media entertainment Acting Deputy National Chair Paul Williams calls on social media companies to take responsibility for content that glorifies dangerous driving and targets police officers for online engagement. 26 August 2026 A million voices for Andrew As a Change.org petition crosses one million signatures, police officers, families and members of the public have united behind a campaign to prevent the early release of the cop killers 26 August 2026 Federation leads national debate on social media's role in dangerous behaviour Police Federation calls for stronger regulation, tougher enforcement and greater responsibility from technology companies whose algorithms amplify harmful content. 25 August 2026 Riders honour fallen colleagues in a sun‑filled 2026 Unity Tour 25 August 2026 Federation responds to Leadership Commission report The Leadership Commission demonstrates what can be achieved if our members are listened to. 25 August 2026 POLICE mag View the latest editions of the national magazine Member Value Report How the Police Federation helps you Pensions FAQs Common questions about the police pension scheme Quick Reference Guide for police officers A basic summary of your main terms and conditions
+Female Fed reps have their say at first ELEVATE event Female representatives from across England and Wales have shared their experiences and views on what more can be done to support women to join, stay and progress within the Federation. 1 October 2026 Insulting the police makes us all unsafe – the Right must stop it James Kirkup, in his latest column in The Telegraph, says that those who genuinely believe in the rule of law must stop undermining the people who deliver it. 29 September 2026 Federation support helps officer secure substantial settlement after injury complications The injury and subsequent complications had a lasting impact on the officer's life. 28 September 2026 Police Federation unanimously approves biggest transformation in its 107-year history Major reforms agreed to put members at the heart of a stronger, more accountable and effective Federation. 22 September 2026 Police Federation appoints independent directors to strengthen governance and accountability 22 September 2026 Mental health matters: National Board member Sarah Ennis calls for greater focus on preventing psychological harm Psychological health should be treated with the same seriousness that we treat physical safety. 16 September 2026 POLICE mag View the latest editions of the national magazine Member Value Report How the Police Federation helps you Pensions FAQs Common questions about the police pension scheme Quick Reference Guide for police officers A basic summary of your main terms and conditions
 
 ### Police Pension Scheme 1987 In England And Wales
 
