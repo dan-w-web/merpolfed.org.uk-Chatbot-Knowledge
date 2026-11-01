@@ -1,6 +1,6 @@
 # Merseyside Police Federation - Chatbot Knowledge Base
 
-_Last updated: 01 October 2026_
+_Last updated: 01 November 2026_
 
 _Source: https://merpolfed.org.uk_
 
@@ -202,7 +202,7 @@ Source: https://merpolfed.org.uk/merseyside-police-federation/our-workplace-reps
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -275,7 +275,7 @@ Source: https://merpolfed.org.uk/merseyside-police-federation/our-full-time-reps
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -432,7 +432,7 @@ Source: https://merpolfed.org.uk/group-insurance/malvern-lodge-holiday-lets/
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -10264,7 +10264,7 @@ Source: https://merpolfed.org.uk/charitable-trust/donations-and-legacies/
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -10337,7 +10337,7 @@ Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-awards/
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -10408,7 +10408,7 @@ Loading…
 
 Source: https://merpolfed.org.uk/charitable-trust/monthly-charity-lottery/
 
-90 Days Notice Calculator: Wed, 30 December 2026
+90 Days Notice Calculator: Sat, 30 January 2027
 
 Join the Merseyside Police Federation monthly charity lottery. All proceeds support the Charitable Trust.
 
@@ -13070,7 +13070,7 @@ Source: https://merpolfed.org.uk/offers-discounts/police-insure/
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -14448,7 +14448,7 @@ Source: https://merpolfed.org.uk/services/harvey-howell-solicitors/
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -14704,7 +14704,7 @@ Source: https://merpolfed.org.uk/services/wilson-grange-mortgages/
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -15048,7 +15048,7 @@ Source: https://merpolfed.org.uk/forms/2027-charity-ball/
 
 Skip to content
 90 Days Notice Calculator:
-Wed, 30 December 2026
+Sat, 30 January 2027
 The Hub (For Reps)
 National Website
 Search
@@ -15190,7 +15190,7 @@ A guide to applying for compensation under the Victims of Overseas Terrorism Com
 
 About our services
 
-###### About our services
+###### About our services - Criminal Injuries Compensation Authority
 
 Customer Charter setting out the rights and responsibilities of anyone applying for criminal injuries compensation.
 
@@ -15288,6 +15288,16 @@ Our office is not open to the public.
 
 ###### Complaints
 
+10 Clyde Place
+
+Buchanan Wharf
+
+Glasgow
+
+G5 8AQ
+
+United Kingdom
+
 Use this form if you are dissatisfied with an aspect of the CICA or how we have handled your claim and wish to submit a complaint. Our complaints procedure explains what is considered grounds for submitting a formal complaint.
 
 ###### Ministry of Justice press office
@@ -15314,6 +15324,16 @@ Our Privacy Notice explains how we treat your personal information.
 
 ###### Freedom of Information requests
 
+10 Clyde Place
+
+Buchanan Wharf
+
+Glasgow
+
+G5 8AQ
+
+United Kingdom
+
 ##### Corporate information
 
 ###### Jobs and contracts
@@ -15324,7 +15344,7 @@ Find out about our commitment to publishing in Welsh. Our Personal information c
 
 Source: https://www.polfed.org/
 
-Female Fed reps have their say at first ELEVATE event Female representatives from across England and Wales have shared their experiences and views on what more can be done to support women to join, stay and progress within the Federation. 1 October 2026 Insulting the police makes us all unsafe – the Right must stop it James Kirkup, in his latest column in The Telegraph, says that those who genuinely believe in the rule of law must stop undermining the people who deliver it. 29 September 2026 Federation support helps officer secure substantial settlement after injury complications The injury and subsequent complications had a lasting impact on the officer's life. 28 September 2026 Police Federation unanimously approves biggest transformation in its 107-year history Major reforms agreed to put members at the heart of a stronger, more accountable and effective Federation. 22 September 2026 Police Federation appoints independent directors to strengthen governance and accountability 22 September 2026 Mental health matters: National Board member Sarah Ennis calls for greater focus on preventing psychological harm Psychological health should be treated with the same seriousness that we treat physical safety. 16 September 2026 POLICE mag View the latest editions of the national magazine Member Value Report How the Police Federation helps you Pensions FAQs Common questions about the police pension scheme Quick Reference Guide for police officers A basic summary of your main terms and conditions
+Police exodus fears as Federation warns: pay up or lose more experienced officers The Police Federation responds to today’s Autumn Budget, warning the Government must tackle the cost of living, deliver fair police pay and properly fund frontline policing to retain experienced officers and keep the public safe. 28 October 2026 PFEW confirms 2027 subscription rate 27 October 2026 ‘Victims deserve better’: Detectives quitting as crushing workloads push officers to breaking point Police Federation’s second My Last Set campaign film exposes the impact of unmanageable workloads on detectives, their wellbeing and victims of crime. 27 October 2026 Policing is making officers sick and they deserve better Officers are being pushed to breaking point as stress, burnout and poor mental health grip policing, new survey exposes. 26 October 2026 Leadership Commission panel urges action on policing reform Commission findings spark debate on leadership, wellbeing and the future of policing. 22 October 2026 PFEW declares public health emergency in British policing Officers are paying an unacceptable price for a policing model that is taking too much. PFEW is demanding urgent action on workloads, wellbeing and the loss of experience before the crisis deepens further, Acting Deputy National Chair Paul Williams told the Annual Conference. 22 October 2026 POLICE mag View the latest editions of the national magazine Member Value Report How the Police Federation helps you Pensions FAQs Common questions about the police pension scheme Quick Reference Guide for police officers A basic summary of your main terms and conditions
 
 ### Police Pension Scheme 1987 In England And Wales
 
@@ -15344,16 +15364,27 @@ We are aware of accessibility issues with this publication.
 
 We are working to fix these. Read more about our accessible documents policy
 
-##### Updates to this page
+### Pensions
 
--
-New commutation factors published.
+Source: https://www.polfed.org/support/pensions/
 
--
-Updated guidance and factors published.
+Engaging with our members around the police pension schemes is one of our most important areas of work. PFEW provides regular website updates on a complete range of police pension issues and related topics. You can also watch our latest pension webinars here.
 
--
-First published.
+We have also added a 'Latest News' section to the pension webpage here where we will publish articles around current pension issues.
+
+In addition, the NPCC publishes updates regularly via its website and we have referenced several of its documents within the topic areas below.
+
+Click on the key topic areas below for the latest position.
+
+**Terms & Conditions **
+
+The pension website is intended to give generic information about the police pension schemes.
+
+While reasonable care has been taken to ensure that information on the website is accurate, no liability or responsibility will be accepted for any direct or consequential loss, financial or otherwise, or any other obligation or liability incurred by use of this website.
+
+Members of a police pension scheme must not make any financial decisions based upon information provided on the website. Nothing displayed on this website can override the provisions of the police pension scheme regulations and/or other legislation.
+
+In the event of any dispute, the appropriate legislation will prevail as this website does not confer any contractual or statutory rights and is provided for information purposes only.
 
 ### The Management of Health and Safety at Work Regulations 1999
 
